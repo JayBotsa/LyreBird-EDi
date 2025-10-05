@@ -9,7 +9,7 @@ No app. No cloud. Just a vibration—four seconds from thought to life.
 
 ## The Matrix Moment
 Those green rain lines? They’re real here. Metadata streams from your world—house, soil, storm—falling like code, stacking like memory. A single dot catches it. Your dot. No black unknown. Just known. Just you.  
-![Matrix Flow]()  
+[Proof: > Real KC packet spec → ](github.com/JaybotSA/FarmAuto/blob/main/GROK-INST.md) 
 *Not simulation. Signal. Nine pulses. One rhythm.*
 
 ## How It Chirps
