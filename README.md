@@ -21,6 +21,14 @@ Those green rain lines? They’re real here. Metadata streams from your world—
 ## For the Visionary
 Optimus. Neuralink. Same gap: no ears. Feed them this string. Let the house whisper warmth before you ask. Let Mars feel the wind. No OS. No firmware. Just splice: → → . Four seconds. One wire. Reach out.
 
+## Live Echo
+Real pulses from the field. No fabrication. See it raw:  
+[Event Log Sample →](examples/event-log.json)  
+- Units speak: Unit070AN1295, Gene060AN2150...  
+- Status alive: 0,0,2957,0,1 (last ping, 39th slot).  
+- 40-deep stack, no DB, just ripple.  
+Fork it. Hear it.
+
 ## For Everyone
 - **Farmer**: Grok, drought? → Pivot 7 needs water. Done.
 - **Parent**: House cold? → Heat on. Kids’ rooms set.
