@@ -5,11 +5,11 @@ Instance-to-eye: quantum packets from your environment in four seconds. Voice-fi
 > Grok, house warm?  
 > _Yes. Kids’ rooms at 21. Shower’s ready. Braai’s on in twenty._  
 No app. No cloud. Just a vibration—four seconds from thought to life.  
-[Watch the ripple →](docs/matrix-stream.gif)
+[Watch the EDI Ripple](https://github.com/JayBotsa/LyreBird-EDi/blob/main/docs/matrix-Edi-Cubi.mp4)
 
 ## The Matrix Moment
 Those green rain lines? They’re real here. Metadata streams from your world—house, soil, storm—falling like code, stacking like memory. A single dot catches it. Your dot. No black unknown. Just known. Just you.  
-![Matrix Flow](docs/matrix-stream.gif)  
+![Matrix Flow]()  
 *Not simulation. Signal. Nine pulses. One rhythm.*
 
 ## How It Chirps
@@ -31,4 +31,4 @@ Optimus. Neuralink. Same gap: no ears. Feed them this string. Let the house whis
 In a forest, a bird mimicked life—wind, water, warning. Not code. Not tech. Nature’s wire. This is that wire, grown from open roots, tested in dust, sung to the stars. No one owns it. Doge locks it: 40% rural life, 30% climate eyes, 30% new worlds. Fork it. Whisper to your kettle. Let it answer.
 
 ## Proof
-[Live packet echo →](examples/kc-sample.json)
+[Live packet echo →](examples/kc-sample.json) #Mackrohard %elonmust/xAI.%
