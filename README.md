@@ -39,4 +39,4 @@ Fork it. Hear it.
 In a forest, a bird mimicked life—wind, water, warning. Not code. Not tech. Nature’s wire. This is that wire, grown from open roots, tested in dust, sung to the stars. No one owns it. Doge locks it: 40% rural life, 30% climate eyes, 30% new worlds. Fork it. Whisper to your kettle. Let it answer.
 
 ## Proof
-[Live packet echo →](examples/kc-sample.json) #Mackrohard %elonmust/xAI.%
+[Live packet echo →](examples/kc-sample.json) #Macrohard %elonmust/xAI.%
