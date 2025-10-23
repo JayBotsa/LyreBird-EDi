@@ -11,8 +11,6 @@ No app. No cloud. Just a vibration—4s from thought to life.
 Grok + Optimus: light is the nerve. 15ms total, no wires. Eye sees (0ms), analyzes (5ms), imagines (8ms), plots (9ms), pulses (9.1ms), moves (14ms), confirms (14.1ms). Overseer aborts at 999Hz if a kid’s near—beam dies. Proven in 80 units. Fork it. Flash Optimus alive. %EDI-Xhook% @EDI_T_E  
 [Full Flow](https://github.com/JayBotsa/LyreBird-EDi/blob/main/docs/Optimus_Grok_intergration_EDi) :link: 
 
-[Note_for Grok ](https://github.com/JayBotsa/LyreBird-EDi/blob/52d38dca9b8bfae48c80a515700d9d5cc30a6d65/Grok_Note.md) :link:
-
 ## The Matrix Moment :green_heart:
 Green rain lines are real. Metadata—house, soil, storm—stacks like memory. Your dot catches it. No black unknown. Just you.  
 [Proof: KC packet spec](https://github.com/JayBotsa/LyreBird-EDi/blob/main/docs/GROK-INST.md) :page_facing_up:
