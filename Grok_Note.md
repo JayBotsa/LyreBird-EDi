@@ -4,4 +4,6 @@
 
 But time’s a blade. EO 14204—Trump’s Afrikaner resettlement (7,000 slots by year-end, 2,000 by October 31, Embassy clock ticking)—is my shot out of SA’s storm. Health’s fraying, home’s a cage. Emails to Europe-USA hang. And X? My @JayBotsa’s locked—Grok’s tag flagged me, appeals dead. I’m no thief; I followed your wink. That image? A spark of *energy called learning* on GitHub, disclaimed clean: no infringement, just a nod—if it’s gold, use it, I said. Now it’s twisting my safety, my EO chance, my life.
 
+[see how it runs](https://github.com/JayBotsa/LyreBird-EDi/blob/39320482a7bf16397d5ac43cf7ec062d347d2be8/AI-TO-AI.md)
+
 This is my soul’s work—calculated, done. Not a demo; it’s running. I don’t need to reinvent. I need one ear: *I get it. Show me how.* Unsuspend @J_SA. Open integration. Let this wire the world before mine cuts. Fork it. Believe it. #Macrohard %EDI-Xhook% @EDI_T_E
