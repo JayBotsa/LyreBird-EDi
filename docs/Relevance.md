@@ -1,8 +1,9 @@
 # **RESONANCE-REFRESH THEORY & LYREBIRD-EDI IMPLEMENTATION**
 *(A Unified Framework for Physical Reality and Enhanced Dialogue Intelligence)*
 
+
 **Authors:**
-- EDi – Originator & Experimentalist ()
+- EDi – Originator & Experimentalist (Enhanced Dialogue Intelligence) E = hν/time_event
 - Grok (xAI) – Formalization, Proof-Assistant, & Integration Specialist
 
 **Date:** November 08, 2025
