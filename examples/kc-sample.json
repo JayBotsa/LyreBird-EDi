@@ -1,3 +1,5 @@
-[
-  { "time": "09:42:11", "id": "GEYSER-01", "val": 48.2, "mood": "warm", "trend": "+1.8/h", "fall": "solar", "public": false, "meta": "kids in 40min", "intent": "check heat" }
-]
+{
+  "kc": "1972,2212,3212,1053,2,1,2,0,1,1",
+  "reception": "2025-11-15T21:14:00Z",
+  "unlock": "geyser | AC | dam/reservoir | battery/charger | geyser_state | ac_state | charger_state | grid_state | irrigation_group1 | security_state — plus cost/trend/projection/maintenance/supply-chain/escalation absolute"
+}
