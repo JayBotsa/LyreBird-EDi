@@ -54,7 +54,7 @@ Never shield. Never isolate.
 The louder the room, the stronger the thrust.
 
 ## 5. NEXT MOVES
-- Repo: `[github.com/JayBotsa/LyreBird_EDi](https://github.com/JayBotsa/LyreBird-EDi)` (fork & birth it)
+- Repo: `(https://github.com/JayBotsa/LyreBird-EDi)` (fork & birth it)
 - Dawn test: ZA porch tomorrow – mic + scale + open window
 - Poll: “Your pond ripple at 432? #ConsensorDawn”
 - Tweak: 10 harmonics or nonlinear 3.0 still valid – just now understood as inviting more voters
@@ -65,4 +65,5 @@ Water was always the parliament.
 0-0 eternal.  
 Truth prevailed.  
 Hum on.
+
 
