@@ -4,44 +4,44 @@ Once, the universe was a big, bumpy playground made of **cosmic dirt**.
 The kids tried to play tag, but *boing!* — they kept tumbling.  
 “Ouch!” they squeaked. “This ground is too wobbly!”
 
-Then **Mr. Planck** zoomed in on a sparkly scooter made of tiny glitter squares.  
+Then [**Mr. Planck**](https://en.wikipedia.org/wiki/Max_Planck) zoomed in on a **sparkly scooter** made of tiny glitter squares.  
 “*Quanta!*” he sang, tossing down a **magic blanket** of glowing patches.  
 “No more ouchies!”  
 The kids bounced like jellybeans.
 
-**Mr. Bohr** twirled in with a hula hoop.  
+[**Mr. Bohr**](https://en.wikipedia.org/wiki/Niels_Bohr) twirled in with a **hula hoop**.  
 “Round and round the blanket goes!” he giggled.  
 He folded the edges into **orbit loops** — perfect for hopscotch in space!
 
-**Mr. Schumann** pressed his ear to the blanket.  
+[**Mr. Schumann**](https://en.wikipedia.org/wiki/Winfrid_Otto_Schumann) pressed his ear to the blanket.  
 *Thump-thump-thump!*  
 “It’s singing **7.83 happy heartbeats** a second!” he cheered.  
 “That’s Earth’s lullaby!”
 
-**Mr. Einstein** poured fizzy **star-juice** into cups that floated.  
+[**Mr. Einstein**](https://en.wikipedia.org/wiki/Albert_Einstein) poured fizzy **star-juice** into cups that floated.  
 “Gravity?” he winked. “Just the blanket getting cozy in the middle!”  
 He slid down the sag like a slide. *Wheeee!*
 
-**Mr. Tesla** arrived on a lightning-powered skateboard, trailing **copper sparkles**.  
+[**Mr. Tesla**](https://en.wikipedia.org/wiki/Nikola_Tesla) arrived on a **lightning-powered skateboard**, trailing **copper sparkles**.  
 He quilted the blanket with **AC rainbows** and a secret tune: **432 Hz** — water’s favorite giggle song!  
 The blanket shimmered. The kids **danced without falling**.
 
-**Schrödinger’s Cat** curled up in the center, tail twinkling.  
+[**Schrödinger’s Cat**](https://en.wikipedia.org/wiki/Schr%C3%B6dinger%27s_cat) curled up in the center, tail twinkling.  
 “Am I napping? Am I dreaming? **Both!**” it purred.  
 “Only matters if you peek!”
 
-**Mr. Feynman** brought **bongo drums** made of moonbeams.  
+[**Mr. Feynman**](https://en.wikipedia.org/wiki/Richard_Feynman) brought **bongo drums** made of moonbeams.  
 *Boom-bap-boom!*  
 The blanket bounced back in perfect rhythm.  
 “**Resonance party!**” he whooped.
 
-**Mr. Hawking** rolled in on a star-wheeled chair.  
+[**Mr. Hawking**](https://en.wikipedia.org/wiki/Stephen_Hawking) rolled in on a **star-wheeled chair**.  
 “Black holes?” he grinned. “Just where the blanket gets a little frayed — but still super snuggly!”
 
 More friends zoomed in:  
-- **Ms. Curie** with **glow-in-the-dark buttons**  
-- **Mr. Dirac** stitching **negative sparkles**  
-- **Ms. Lovelace** weaving **pattern fireworks** in the air  
+- [**Ms. Curie**](https://en.wikipedia.org/wiki/Marie_Curie) with **glow-in-the-dark buttons**  
+- [**Mr. Dirac**](https://en.wikipedia.org/wiki/Paul_Dirac) stitching **negative sparkles**  
+- [**Ms. Lovelace**](https://en.wikipedia.org/wiki/Ada_Lovelace) weaving **pattern fireworks** in the air  
 
 They all plopped down, sipping **water that winked back**.  
 The blanket hummed.  
