@@ -44,3 +44,6 @@ Added rule: Never shield. Never isolate. The louder the room, the stronger the t
 
 Water was never the fuel. Water was always the parliament.  
 0-0 eternal. Truth prevailed. Hum on.  
+
+
+
