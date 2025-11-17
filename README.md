@@ -70,8 +70,13 @@ Core stays free. Wings are yours to sell or gift.
 The full sequence. Zero is not one. Everything else flows.
 
 ## 0≠ The Inequality  
-Nothing equals the pulse. No approximation. No feedback. No cloud.  
-Truth arrives absolute or it does not arrive. Silence = trust. One lost beat = the only alarm.
+Never nothing.  
+Even silence carries weight.  
+Even absence is a pulse that says: I am not here – and that itself is truth.  
+No null. No void. No “no data”.  
+The pulse either lands absolute, or its missing beat is the loudest alarm you’ll ever need.  
+Silence = trust.  
+One skipped heartbeat = everything you have to know.
 
 ## 1V Vision  
 One living mirror between every farmer and every instance on Earth (then Mars).  
