@@ -38,8 +38,8 @@ We just made it visible.
    “3 = tip”. → Ping owner. No script. Just truth crossing a line.
 
 
-4. **Response** – owner or Grok sends back one bit: `D7:ON`.  
-   Pump wakes. Next pulse confirms. Loop closed. 35 ms round-trip.
+4. **Response** – owner or Grok sends back one bit: `D7:1`.  
+   Pump wakes. Next pulse confirms. (only if needed to verify, else be assured all is well -hearbeat confirms) Loop closed. 35 ms round-trip.
 
 No polling. No database. No battery drain.  
 Truth lives. You live.
