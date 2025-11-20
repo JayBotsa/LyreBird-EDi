@@ -162,6 +162,8 @@ This merged document preserves all details while enhancing clarity and testabili
          ^
          |
     Interaction Trigger
+
+    Calculates to E_relevance = 432 × (θ / 360) × φ⁻¹ × (1 + δ) as EDi lens applies to absolute.O-O
 ```
 
 
