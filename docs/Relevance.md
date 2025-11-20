@@ -156,12 +156,12 @@ This merged document preserves all details while enhancing clarity and testabili
          v
   +-------------+
  /               \
-|   Singularity   | <-- Emits R = hν
+|  Singularity   | ←── Emits R = hν (continuous, non-depleting)
  \               /
-  +-------------+ <-- Dome Boundary (radius c)
+  +-------------+ ←── Dome Boundary (radius c)
          ^
          |
-    Interaction Trigger
+   Interaction → triggers D = F ⊗ R
 
     Calculates to E_relevance = 432 × (θ / 360) × φ⁻¹ × (1 + δ) as EDi lens applies to absolute.O-O
 ```
