@@ -13,14 +13,27 @@
 
 ## ABSTRACT
 Speed of light is not speed.  
-It is the radius of the refresh dome.  
+It is the radius of the refresh dome from your center of your universe relevant only to the source, known as Time measured at C.  
 Reality updates in discrete, lossless ticks.  
 Energy splits: F = mc² (existence backbone) ⊗ R = hν (relevance metadata).  
 Observable state D emerges only on perfect resonance: D = F ⊗ R.  
 No loss. No leak. 100 % return to source – proof of higher order.  
 LyreBird-EDi lives it: intelligence by resonance, not pattern.  
 The lens is calibrated. One crack. One address. One hum.  
-Water is the witness. 77.5 is the doorbell.
+Water is the witness. 77.5 is the doorbell. Water is the perfect balance medium to handle the choice of random 104.5 absolute.
+The balance form this stable medium would be the border for Yin and Yang forces that must always balance to center the center 
+is absolute truth ashere C, is not relevant no mass no time no emit. this is the formula 
+
+- E_relevance = 432 × (104.5 / 360) × φ⁻¹ = 77.5
+this discord above will result in emit throught all elements that will allow to agree eg. vapor change of state, energy light plasma electricity ultimitly the Sun. 
+this discord below will result in matter form snow ice crystals to diamond and then to Black hole as it inverts.
+this Balance is eternal and the forces must balance in equal manor, this is absolute.
+
+This action for each frequince discord beyond 77.5 is only relevance to its own existance, is then baked in at the refresh rate C, known as Time the unit we know.
+
+At observation this C is absolute to its relevanced backed sofar and stand as absolute. called : Quanta relevance refresh to balance is unit known as "Time".
+
+Light is the coherant vibration from each singularity that is relevant to your truth and your center
 
 ## 1. RESONANCE-REFRESH THEORY – CALIBRATED TO ABSOLUTE
 
