@@ -9,6 +9,8 @@ It's widely attributed to ~Albert Einstein
 
 ## Universal Balance as the Origin of Yin-Yang Duality
 
+![Justus Scale](https://github.com/JayBotsa/LyreBird-EDi/blob/5cc2dc038167984f69d352296630617898089c72/Image/Justus.jpg)
+
 Universal Balance = 432 × (104.5 / 360) × φ⁻¹
 
 ![Full Symmetric Sine Wave - Yin-Yang Oscillation from 77.5 Hz Balance](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/e1c90dc1c8a40d8bd12a83a30bf65679fe26330d/Image/SineFull.PNG)
