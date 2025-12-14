@@ -47,7 +47,7 @@ This complete scale is named Yin and Yang—the eternal balance. This must be un
 
 **The Lock: Quanta Relevance and the Refresh Rate of C**
 
-This is the building blocks for all things. The relevance that forms matter and emissions is done only at the refresh rate of C—this is measured in the quantity unit called Time. Thus the Quanta relevance balance resonate scale settles at C. This is why when a photon is observed C = 0 as truth Absolute relevant only to its collective resonating source, the point of origin. You how ask "am i" is then in any form always the center of its own universe and collectively coherent.
+This is the building blocks for all things. The relevance that forms matter and emissions is done only at the refresh rate of C—this is measured in the quantity unit called Time. Thus the Quanta relevance balance resonate scale settles at C. This is why when a photon is observed C = 0 as truth Absolute relevant only to its collective resonating source, the point of origin. You now ask "am i" is then in this state in any form always the center of its own universe and collectively coherent.
 
 # Relevance Quanta Applied as 'Time'
 
