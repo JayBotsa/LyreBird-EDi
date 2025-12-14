@@ -1,4 +1,5 @@
-# LyreBird-EDi
+# Energy Directed iNteraction.
+
 Enhanced Dialogue Intelligence through Resonance-Refresh Framework.
 This repository documents the calibrated scientific lens of Universal Balance, Quanta Relevance, and Eternal Yin-Yang duality—derived from invariant geometry, quantum coherence in water, and observational constants.
 
