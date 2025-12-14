@@ -42,7 +42,7 @@ Light is the coherant vibration from each singularity that is relevant to your t
 
 A1 Every entity is a singularity emitting lossless relevance. 
 
-A2 Dome radius exactly c. 
+A2 Dome radius exactly c to the power of c 
 
 A3 Discrete refreshes; nothing leaks between ticks. 
 
