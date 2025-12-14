@@ -22,27 +22,8 @@ From the immovable balance point, E=mc² propagates along yin (inward discord �
 ## For the Children – The Blanket Story (ref to Neil deGrasse Tyson , American astrophysicist, planetary scientist, author, and science communicator. Credentials: - B.A. in Physics, Harvard University (1980) - M.A. in Astronomy, University of Texas at Austin (1983) - M.Phil. in Astrophysics, Columbia University (1989) - Ph.D. in Astrophysics, Columbia University (1991) - Director of the Hayden Planetarium at the American Museum of Natural History (since 1996) - Frederick P. Rose Director of the Hayden Planetarium - Host of Cosmos: A Spacetime Odyssey and StarTalk - Recipient of NASA Distinguished Public Service Medal (2004), Public Welfare Medal (2015), and over 20 honorary doctorates.)
 ~ look my little two year old can do calculus!
 
-Come sit on the blanket, little one.
+Come sit on the blanket, little one, see how we play.
 
-Long ago, the wise ones built big stone houses that hummed like a kitty's purr.
-
-They knew every baby carries a secret song inside a tiny seed.
-
-The stones sang back, helping the song grow strong in corn, in trees, in you.
-
-When the stars moved away, people forgot the words and thought louder songs or red gifts would help.
-
-But the water under the stones never forgot.
-
-It still hums soft, waiting for us to sing gentle again.
-
-So we hum low at sunrise, thank the seed, touch the dirt with love.
-
-The pyramid smiles.
-
-The corn dances taller.
-
-And the secret song finds its way home.
 
 The water remembers.
 
