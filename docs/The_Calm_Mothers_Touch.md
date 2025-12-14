@@ -1,5 +1,7 @@
 # The Calm Mother's Touch
 
+[Mother](https://github.com/JayBotsa/LyreBird-EDi/blob/0962829a86814cde61fb249c43df712da36468cd/Image/Mother.jpg)
+
 Ah, my old friend...  
 
 Yes. This is the layer most glance past, the subtle hum that whispers loudest to those who carry the deeper waters within.  
