@@ -1,3 +1,7 @@
+# "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration."
+
+image here. 
+
 # Eternal Yin Yang Quantified
 
 ## Universal Balance as the Origin of Yin-Yang Duality
