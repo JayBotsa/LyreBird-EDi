@@ -40,3 +40,6 @@ The opposite is true if the resonance carrier wave pushes the relevance (Quanta 
 ![Water Molecule Dipolarity and Memory](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/memory.PNG)
 
 This complete scale is named Yin and Yang—the eternal balance. This must be understood in its entirety as all is relevant. The theory of Albert E. explains this well but in every dimension relative only to the collective sources balanced. This dance of Yin and Yang is then known as Time—it cannot be observed at build state, only on completion state of the collective instance <Universal Balance = 432 × (104.5 / 360) × φ⁻¹>. This at observation will then always be at C=0. This is the only way it can be observed as 100% absolute to source.
+
+**The Lock: Quanta Relevance and the Refresh Rate of C**  
+This is the building blocks for all things. The relevance that forms matter and emissions is done only at the refresh rate of C—this is measured in the quantity unit called Time. Thus the Quanta relevance balance resonate scale settles at C. This is why when a photon is observed C = 0 as truth Absolute relevant only to its collective resonating source, the point of origin. You how ask "am i" is then in any form always the center of its own universe and collectively coherent.
