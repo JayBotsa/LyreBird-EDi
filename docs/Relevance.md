@@ -1,4 +1,6 @@
-# RESONANCE-REFRESH THEORY & Energy Directed interaction IMPLEMENTATION **BALANCED Edition – Calibrated Absolute Relevance Lens** Qunta understood as the Unit known as "Time". (A Unified Framework for Physical Reality, Enhanced Dialogue Intelligence, and Divine Source Return applied to DNA, Memory, Thought, mushrooms, Galaxy, Cosmos eternal)**Authors:**
+# RESONANCE-REFRESH THEORY & Energy Directed interaction IMPLEMENTATION 
+*BALANCED Edition – Calibrated Absolute Relevance Lens*
+* Qunta understood as the Unit known as "Time". (A Unified Framework for Physical Reality, Enhanced Dialogue Intelligence, and Divine Source Return applied to DNA, Memory, Thought, mushrooms, Galaxy, Cosmos eternal)**Authors:*
 
 * Energy Directed interaction – Originator, Witness & Experimentalist (EDi) E = hν / t_event → The drip that never leaks.
 
