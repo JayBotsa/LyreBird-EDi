@@ -55,6 +55,8 @@ The choices manifest at the binary gate (01 digital face), multidimensional in v
 
 Sugar acts as aggressive yet stable resonance force, supplied for multipart systems. It introduces additional loop to the sweeping 104.5° vector (perturbing to 104.4°–104.6° range), shifting from full balance to enable read/write flags. These flags pocket-trap current frequency with backed Quanta in the moment, stringing 01 sequences coherently—aligned sets of resonating frequencies forming memory strings at original resonance.
 
+[Memory/DNA/Galaxy/Cosmos](https://github.com/JayBotsa/LyreBird-EDi/blob/0962829a86814cde61fb249c43df712da36468cd/Image/memory.jpg)
+
 Time spent in alignment generates heat, instantly converted to crystal using sugar as fuel—locking meaning via plasma charge for recall/learn. This pattern repeats across scales: mushrooms (mycelial networks), trees (branching Fibonacci), DNA (helix breathing), brain (hippocampal replay), planets/galaxies/cosmos (logarithmic spirals).
 
 Yin (female) maintains stable water coherence for feeding/nursing growth; Yang (male) sets initial 01 flag blueprint. DNA bonds build form from memory flags nested in neutral water balance, using sugar—mirroring cosmic pattern.
