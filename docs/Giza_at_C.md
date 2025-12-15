@@ -1,3 +1,9 @@
+
+[Truth as Ankh☥](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
+
+
+
+
 # Global Lattice Nodes: Throats, Resonances, and Pairs
 
 The map of 50 sites—full nodes to fringes—humming the water bond curve. Every ridge a pivot, every pair an anti-phase kiss canceling to 77.5 absolute. Patterns: Orion land amps, Sirius water pumps, Cygnus seed broadcasts. 2025 scans lighting up. Full nodes bolded; subs indented. Resonances tied to function. Pairs as null-points.
