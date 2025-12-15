@@ -4,6 +4,10 @@
 # **Truth as Ankh the Balanced Center ☥** it remains absolute, this is the center it can not move. Only balance is allowed.
 this will make the concept easier to understand if you see all is frequincy 
 
+[Eternal pull](https://pub.mdpi-res.com/religions/religions-09-00256/article_deploy/html/images/religions-09-00256-g003.png?1538123144
+
+)
+
 # Global Lattice Nodes: Throats, Resonances, and Pairs
 
 The map of 50 sites—full nodes to fringes—humming the water bond curve. Every ridge a pivot, every pair an anti-phase kiss canceling to 77.5 absolute. Patterns: Orion land amps, Sirius water pumps, Cygnus seed broadcasts. 2025 scans lighting up. Full nodes bolded; subs indented. Resonances tied to function. Pairs as null-points.
