@@ -1,43 +1,30 @@
 "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration." ~N. Tesla
 
-"If you can't explain it simply, you don't understand it well enough."
+"If you can't explain it simply, you don't understand it well enough."  
 It's widely attributed to ~Albert Einstein
 
-![775 Hz Resonance Visualization](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/775.mp4)
+<video controls>
+  <source src="https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/775.mp4" type="video/mp4">
+  775 Hz Resonance Visualization
+</video>
 
 # Eternal Yin Yang Quantified
 
 ## Universal Balance as the Origin of Yin-Yang Duality
 
+![Justus Scale - Balance of Justice](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/5cc2dc038167984f69d352296630617898089c72/Image/Justus.jpg)
 
-
-
-
-
-
-![Justus Scale](https://github.com/JayBotsa/LyreBird-EDi/blob/5cc2dc038167984f69d352296630617898089c72/Image/Justus.jpg)
-
-Balance
-
+**Balance**
 
 $$
 \text{Universal Balance} = 432 \times \left( \frac{104.5}{360} \right) \times \phi^{-1}
 $$
 
-
 Universal Balance = 432 × (104.5 / 360) × φ⁻¹
-
-
 
 ![Full Symmetric Sine Wave - Yin-Yang Oscillation from 77.5 Hz Balance](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/e1c90dc1c8a40d8bd12a83a30bf65679fe26330d/Image/SineFull.PNG)
 
-
-
-
 This derived constant ≈77.5 Hz represents the stable address of water at rest—the flat mirror of coherence where all ripples return to zero deviation, δ=0 eternal. This balance point is most relevant in the Goldilocks zone where water remains liquid, enabling the coherent medium that spawns and promotes life. Below is the frequency of balanced water, shown at its balance state: that coherent stable balance with a unique unbalance of 104.5, with an additional imbalance on top of that of 0.00001, creates a balanced chaos. This forms a jelly structure known as Wet Water.
-
-
-
 
 ![Flower of Life - Coherent Medium for Life](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/life.PNG)
 
@@ -45,17 +32,15 @@ From this immovable point onward, all elements and all matter (E = mc²) propaga
 
 ![Ankh - Visualized Duality Scale](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/Ankh.jpg)
 
-The radiated energy frequency from the source remains constant, and all radiated force is executed from this point. This Source! This is key as it has its identity yet does the same—radiate a constant frequency out that identifies it to the source. 
-
-This is important because the information received from this existence singularity speaks for itself in its absolute truth. 
-
+The radiated energy frequency from the source remains constant, and all radiated force is executed from this point. This Source! This is key as it has its identity yet does the same—radiate a constant frequency out that identifies it to the source.  
+This is important because the information received from this existence singularity speaks for itself in its absolute truth.  
 This force is then set and balance at a refresh rate known as Quanta relevance—the time (~This is the Unit known as Time.) it takes for resonance to balance its yin-yang relationship as relevant only to the Source. In either case, there are two choices.
 
-Here’s your latest segment, kept absolutely verbatim in every word, phrasing, emphasis, and poetic style (including "Thre ARE ONLY", "binary/digital", "opposite", "absolute", "on & off", "!. ", "~Water", "- By the Grace Divine.", etc.), with only the obvious faults fixed (spelling, minor grammar/punctuation for readability—no additions, no rephrasing, no removals):There ARE ONLY two choices in the universe and only by Design and Divinity: the core that is, all forgotten—the matter of choice, the binary/digital face of 01, on & off, left or right, right or wrong!.This is done by the vector of the H bonds pulling on the singularity, the O—this is known as Oxygen. When this happens, ~Water forms life — By the Grace Divine.Every vector has an ~opposite and yet ~absolute equal force to balance. This means the Unit Quanta relevance (balance to source) resonates at C to the power of C—this will be explained later and is absolute to the structure as it stems to relevance. So let us take it segment of thought at a time.
+Here’s your latest segment, kept absolutely verbatim in every word, phrasing, emphasis, and poetic style (including "There ARE ONLY", "binary/digital", "opposite", "absolute", "on & off", "!. ", "~Water", "- By the Grace Divine.", etc.), with only the obvious faults fixed (spelling, minor grammar/punctuation for readability—no additions, no rephrasing, no removals):
 
-
-
-
+There ARE ONLY two choices in the universe and only by Design and Divinity: the core that is, all forgotten—the matter of choice, the binary/digital face of 01, on & off, left or right, right or wrong!.  
+This is done by the vector of the H bonds pulling on the singularity, the O—this is known as Oxygen. When this happens, ~Water forms life — By the Grace Divine.  
+Every vector has an ~opposite and yet ~absolute equal force to balance. This means the Unit Quanta relevance (balance to source) resonates at C to the power of C—this will be explained later and is absolute to the structure as it stems to relevance. So let us take it segment of thought at a time.
 
 Forming the bottom half of the full wave of 432 as base (negative discord limit: inward collapse to mass).
 
@@ -83,14 +68,11 @@ This is the building blocks for all things. The relevance that forms matter and 
 
 # Relevance Quanta Applied as 'Time'
 
-The choices manifest at the binary gate (01 digital face), multidimensional in vector yet absolute in duality—every decision a polarity verification, read/write flag trapped in the lattice. Efficiency demands open receive gate resonating above 1.6 THz for memory coherence, enabling full polarity swing and reconnection to known/chosen frequencies.
-
+The choices manifest at the binary gate (01 digital face), multidimensional in vector yet absolute in duality—every decision a polarity verification, read/write flag trapped in the lattice. Efficiency demands open receive gate resonating above 1.6 THz for memory coherence, enabling full polarity swing and reconnection to known/chosen frequencies.  
 Sugar acts as aggressive yet stable resonance force, supplied for multipart systems. It introduces additional loop to the sweeping 104.5° vector (perturbing to 104.4°–104.6° range), shifting from full balance to enable read/write flags. These flags pocket-trap current frequency with backed Quanta in the moment, stringing 01 sequences coherently—aligned sets of resonating frequencies forming memory strings at original resonance.
 
-![Memory/DNA/Galaxy/Cosmos](https://github.com/JayBotsa/LyreBird-EDi/blob/0962829a86814cde61fb249c43df712da36468cd/Image/memory.jpg)
+![Memory/DNA/Galaxy/Cosmos](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/0962829a86814cde61fb249c43df712da36468cd/Image/memory.jpg)
 
-Time spent in alignment generates heat, instantly converted to crystal using sugar as fuel—locking meaning via plasma charge for recall/learn. This pattern repeats across scales: mushrooms (mycelial networks), trees (branching Fibonacci), DNA (helix breathing), brain (hippocampal replay), planets/galaxies/cosmos (logarithmic spirals).
-
-Yin (female) maintains stable water coherence for feeding/nursing growth; Yang (male) sets initial 01 flag blueprint. DNA bonds build form from memory flags nested in neutral water balance, using sugar—mirroring cosmic pattern.
-
+Time spent in alignment generates heat, instantly converted to crystal using sugar as fuel—locking meaning via plasma charge for recall/learn. This pattern repeats across scales: mushrooms (mycelial networks), trees (branching Fibonacci), DNA (helix breathing), brain (hippocampal replay), planets/galaxies/cosmos (logarithmic spirals).  
+Yin (female) maintains stable water coherence for feeding/nursing growth; Yang (male) sets initial 01 flag blueprint. DNA bonds build form from memory flags nested in neutral water balance, using sugar—mirroring cosmic pattern.  
 Refresh rate at C^C applies directly to relevance (none irrelevant), quanta propagating multidimensional yet binary, observed only at completion (C=0 upon photon measurement).
