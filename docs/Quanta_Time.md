@@ -14,7 +14,7 @@
 
 ![Justus Scale - Balance of Justice](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/5cc2dc038167984f69d352296630617898089c72/Image/Justus.jpg)
 
-==**Universal Balance**==
+==Universal Balance==
 
 $$
 \text{Universal Balance} = 432 \times \left( \frac{104.5}{360} \right) \times \phi^{-1} \approx \textbf{77.5 Hz}
