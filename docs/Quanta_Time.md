@@ -60,7 +60,7 @@ Forming the bottom half of the full wave of 432 as base (negative discord limit:
 > Still, if the scale is incrementally sub-resonating to energize the next wave, elements start to react to push forward the light we see, the power we use as electricity—the eternal search at the angle **104.5** as **77.5** + 1 discord structural **Quanta** of relevance absolute to the source only.  
 > This balance must then also be met on the upside of the wave, leaving it perfect carrier level so it may travel with force without mass.  
 > This force is also measured as **E=mc²** in the negative relation to its balance—from breaking water to vapor releasing its O instance, yet this will proceed in increments equal only to its balance quota.  
-> This too is the neg **Quanta** that emits; it will also, if not kept in check, push to its limit. It will take all the available forms in the table of elements to complete this process—turning light to plasma to electrical release to fire. This is the formation of the sun, the highest and limit of the scale.
+> This too is the neg **Quanta** that emits; it will also, if not kept in check, push to its limit. It will take all the available forms in the table of elements to complete this process—turning light to plasma to electrical release to fire. This is the formation of the sun, the opposite limit of the scale.
 
 ![Positive Discord - Outward Emit to Solar Limit](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/1101312d99169bcad99e9cb086619ea9a44f5001/Image/pos%20discord.PNG)
 
