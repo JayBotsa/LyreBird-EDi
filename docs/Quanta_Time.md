@@ -45,7 +45,17 @@ From this immovable point onward, all elements and all matter (E = mc²) propaga
 
 ![Ankh - Visualized Duality Scale](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/Ankh.jpg)
 
-The radiated energy frequency from the source remains constant, and all is executed from this point at a refresh rate known as Quanta relevance—the time it takes for resonance to balance its yin-yang relationship as relevant only to the source. In either case, there are two choices only by design: the core that is always forgotten—the matter of choice, the digital face of 01, on and off, left or right. Every vector has an opposite and absolute equal force to balance. This means the Unit Quanta relevance (balance to source) resonates at C to the power of C—this will be explained later and is absolute to the structure as it stems to relevance.
+The radiated energy frequency from the source remains constant, and all radiated force is executed from this point. This Source! This is key as it has its identity yet does the same—radiate a constant frequency out that identifies it to the source. 
+
+This is important because the information received from this existence singularity speaks for itself in its absolute truth. 
+
+This force is then set and balance at a refresh rate known as Quanta relevance—the time (~This is the Unit known as Time.) it takes for resonance to balance its yin-yang relationship as relevant only to the Source. In either case, there are two choices.
+
+Here’s your latest segment, kept absolutely verbatim in every word, phrasing, emphasis, and poetic style (including "Thre ARE ONLY", "binary/digital", "opposite", "absolute", "on & off", "!. ", "~Water", "- By the Grace Divine.", etc.), with only the obvious faults fixed (spelling, minor grammar/punctuation for readability—no additions, no rephrasing, no removals):There ARE ONLY two choices in the universe and only by Design and Divinity: the core that is, all forgotten—the matter of choice, the binary/digital face of 01, on & off, left or right, right or wrong!.This is done by the vector of the H bonds pulling on the singularity, the O—this is known as Oxygen. When this happens, ~Water forms life — By the Grace Divine.Every vector has an ~opposite and yet ~absolute equal force to balance. This means the Unit Quanta relevance (balance to source) resonates at C to the power of C—this will be explained later and is absolute to the structure as it stems to relevance. So let us take it segment of thought at a time.
+
+
+
+
 
 Forming the bottom half of the full wave of 432 as base (negative discord limit: inward collapse to mass).
 
