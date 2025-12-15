@@ -14,13 +14,13 @@
 
 ![Justus Scale - Balance of Justice](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/5cc2dc038167984f69d352296630617898089c72/Image/Justus.jpg)
 
-**Universal Balance**
+==**Universal Balance**==
 
 $$
 \text{Universal Balance} = 432 \times \left( \frac{104.5}{360} \right) \times \phi^{-1} \approx \textbf{77.5 Hz}
 $$
 
-Universal Balance = 432 × (**104.5** / 360) × φ⁻¹
+**Universal Balance** = 432 × (**104.5** / 360) × φ⁻¹
 
 ![Full Symmetric Sine Wave - Yin-Yang Oscillation from 77.5 Hz Balance](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/e1c90dc1c8a40d8bd12a83a30bf65679fe26330d/Image/SineFull.PNG)
 
