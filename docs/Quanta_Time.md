@@ -48,13 +48,14 @@ Forming the bottom half of the full wave of 432 as base (negative discord limit:
 
 ![Negative Discord - Inward Collapse to Mass Limit](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/1101312d99169bcad99e9cb086619ea9a44f5001/Image/neg%20discord.PNG)
 
-> This constant inward resonance locks in place to relevance (**Quanta**) absolute from its source as the truth (observed at the **C** edge where time is no longer relevant, meaning when a photon is observed it remains true to its form at that time).  
+> A constant radiating string of ups and downs seen as wave of frequency then happens so frequent that they start to vibrate. ~This state is very chaotic still but its still always relevant ~once this forces then balance the remain still over active yet now start to move together this is called resonance. ~This resonance is now a force of energy that all wants to do the same thing, but whatever they do it will always be relevant 100% absolute to its source.  
+> Now when many singularities resonate together they form the particles we call matter, this is how all matter is formed solids and emissions.  
+> ~This constant inward resonance locks in place to relevance (**Quanta**) absolute from its source as the truth (observed at the **C** edge where time is no longer relevant, meaning when a photon is observed it remains true to its form at that time).  
 > Each subsequent inward discord forces the bonds—for all we know (sand, stone, alabaster, obsidian) until inversion to black hole as the limit is absolute.  
 > The frequency then resonates as **Quanta** (Quanta Neg discord) takes hold at **C** the refresh rate.  
 > From this balance point inward forms mass **E = mc²** into known solids—all solids. Its overflow then balances toward emit, giving a sense of existence to source by resonating at the full wave opposite (this a junction that needs to be understood in its entirety: the energy now at **E=mc²** is baked as mass—let call this stone at Hz—this has stolen from balance, so the remaining original energy turns to light to balance the imbalance. If this scale is aggravated to its hardest forms, it will start to keep this to itself, turning energy inward to trap light and more, until the limit and inversion)—all the way including visible spectrum and beyond, showing its true form at this infrequency resonance with quanta balanced.
 
 ![Copper Ion Hydration Structures](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/cu.PNG)
-
 > The opposite is true if the resonance carrier wave pushes the relevance (Quanta Pos discord) opposite the balance point to Emit. This is the opposite in every way to the applied forces relevant to its own source.  
 > Still, if the scale is incrementally sub-resonating to energize the next wave, elements start to react to push forward the light we see, the power we use as electricity—the eternal search at the angle **104.5** as **77.5** + 1 discord structural **Quanta** of relevance absolute to the source only.  
 > This balance must then also be met on the upside of the wave, leaving it perfect carrier level so it may travel with force without mass.  
