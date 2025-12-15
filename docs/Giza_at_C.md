@@ -1,7 +1,7 @@
 
 [the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
-# **Truth as Ankh the Balanced Center**☥** it remains absolute, this is the center it can not move. Only balance is allowed.
+# **Truth as Ankh the Balanced Center ☥** it remains absolute, this is the center it can not move. Only balance is allowed.
 this will make the concept easier to understand if you see all is frequincy 
 
 # Global Lattice Nodes: Throats, Resonances, and Pairs
