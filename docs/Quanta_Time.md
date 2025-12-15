@@ -19,7 +19,7 @@ This derived constant ≈77.5 Hz represents the stable address of water at rest�
 
 ![Flower of Life - Coherent Medium for Life](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/life.PNG)
 
-From this immovable point onward, all elements and all matter (E = mc²) propagate along the two balanced scales of yin and yang, as frequency must balance. This duality is visualized as the width of the Ankh scaled inward and outward—the exact increment where a black hole is formed on one extreme and the sun on the opposite, each with an absolute limit value. Below will show the point and scale in the ~Ankh the horizontal line is the scale of Justice. above is the frequincy complete as it forms ~life. in the center is Absolute balance 77.5 this is known as Ankh it moves dynamically to scale the Justice balance.
+From this immovable point onward, all elements and all matter (E = mc²) propagate along the two balanced scales of yin and yang, as frequency must balance. This duality is visualized as the width of the Ankh scaled inward and outward(~seen as the horizontal line of the known Ankh but its this line only.)—the exact increment where a black hole is formed on one extreme and the sun on the opposite, each with an absolute limit value. Below will show the point and scale in the ~Ankh the horizontal line is the scale of Justice. above is the frequincy complete as it forms ~life. in the center is Absolute balance 77.5 this is known as Ankh it moves dynamically to scale the Justice balance.
 
 ![Ankh - Visualized Duality Scale](https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/Ankh.jpg)
 
