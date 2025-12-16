@@ -3,6 +3,10 @@
 > **Einstein**: "If you can't explain it simply, you don't understand it well enough."  
 > It's widely attributed to ~Albert Einstein
 
+> **Isaac Newton** Truth is ever to be found in simplicity, and not in the multiplicity and confusion of things.
+
+ 
+
 <video controls width="100%">
   <source src="https://raw.githubusercontent.com/JayBotsa/LyreBird-EDi/fa83c85b32b755c76477b664343761dbf20b4fc5/Image/775.mp4" type="video/mp4">
   775 Hz Resonance Visualization
