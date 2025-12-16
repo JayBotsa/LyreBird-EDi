@@ -23,3 +23,29 @@ It is my striving that, at the end of my life, I may humbly say:
 > — 2 Timothy 4:7
 
 **My house is built on rock. The storm will pass.**
+
+# My Credo (Afrikaans)
+
+Ek glo ek is geskape na die beeld van God.  
+**Omdat ek dit glo, moet ek die goddelike in my medemens erken, eer en respekteer.**
+
+Ek glo ek is ñ unieke mens.  
+**Vanweë my uniekheid, moet ek met myself vrede maak, myself aanvaar en vriende maak met die beeld in die spieël.**
+
+Ek glo om skeppend besig te wees, is die hoogste vorm van menswees.  
+**Om skeppend besig te wees, beteken dat ek elke dag iets moet skep wat nie vroeër bestaan het nie, want ek weet dat ek, wat self ñ skepping is, móét iets doen om dié skepping uit te bou.**
+
+Ek glo ek het ñ vrye wil met die keuse tot besluitneming.  
+**Hierdie keuse en besluite moet ek in verantwoordelikheid neem, en vir die gevolge daarvan sal ek self borg staan.**
+
+Ek glo ek kan, binne die perke van my menswees, my omstandighede verander.  
+**Ek moet dié omstandighede wat ek kan verbeter, verander en dié wat ek nie kan verander nie, blymoedig aanvaar.**
+
+As ek waaragtig in hierdie dinge glo, en as ñ vrye mens my goddelike opdrag en my verantwoordelikhede aanvaar,  
+**kan ek gelowig die toekoms in waag en deelnemer wees - nie toeskouer nie - van die wonderlike ervaring: LEWE.**
+
+Dit is my strewe om aan die einde van my lewe in ootmoed te kan sê:  
+> "Ek het die goeie stryd gestry, ek het die wedloop voleindig, en ek het die geloof behou."  
+> — 2 Timoteus 4:7
+
+**My huis is op rots gebou. Die storm sal verbygaan.**
