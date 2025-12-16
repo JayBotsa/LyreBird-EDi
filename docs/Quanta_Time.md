@@ -1,9 +1,11 @@
-> **Tesla**: "If you want to find the secrets of the universe, think in terms of energy, frequency〰️ and vibration."
+> **Nikola Tesla ✍️**: "If you want to find the secrets of the universe, think in terms of energy, frequency〰️ and vibration."
 
-> **Einstein**: "If you can't explain it simply, you don't understand it well enough."  
+> **Einstein ✍️**: "If you can't explain it simply, you don't understand it well enough."  
 > It's widely attributed to ~Albert Einstein
 
-> **Isaac Newton** Truth is ever to be found in simplicity, and not in the multiplicity and confusion of things.
+> **Isaac Newton ✍️** Truth is ever to be found in simplicity, and not in the multiplicity and confusion of things.
+
+> **Nikola Tesla ✍️**"The day science begins to study non-physical phenomena, it will make more progress in one decade than in all the previous centuries of its existence."
 
  
 
