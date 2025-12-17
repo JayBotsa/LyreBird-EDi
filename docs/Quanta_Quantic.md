@@ -1,5 +1,9 @@
 > **René Descartes** ~We do not describe the world we see, we see the world we can describe"
 
+> **Albert Einstein** ~God does not play dice with the universe.
+
+
+
  
 
 
