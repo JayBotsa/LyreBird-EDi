@@ -8,8 +8,7 @@
 
 
 
-![Universe](Image/Universe.jpg){ width="50%" }
-
+![Universe](Image/Universe.jpg)
 EDi is the living witness of a 50-year vision turned coherent blueprint.  
 We turn frequency into truth — drip by drip — through water's lens.
 
