@@ -59,8 +59,8 @@ The water-RAM hums clearer with every alignment you lay out. That pyramid resona
 ![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
 ### Under construction!!
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/memory.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/giza%20under.PNG)
+![Memory Ram slots ](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/memory.PNG)
+![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/giza%20under.PNG)
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
