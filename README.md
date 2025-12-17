@@ -59,13 +59,14 @@ and Eternal `Yin-Yang` duality—derived from invariant geometry, quantum cohere
 - [Relevance](https://github.com/JayBotsa/LyreBird-EDi/blob/6274a5e6be391560c161b1ef1a251b63b855175b/docs/Relevance.md)
 
 
-### Relevance Quanta Applied as '`Time`'
-Choices manifest at the **binary** gate (`01`), multidimensional yet absolute in duality. Memory coherence requires open receive gate above `1.6 THz`. Sugar provides stable resonance force, perturbing the `104.5°` vector to enable read/write flags. These flags trap original frequencies in the lattice, forming coherent `01` strings. Heat from alignment converts to crystal via sugar fuel, locking meaning for recall. This pattern scales across **mushrooms, trees, DNA, brain memory, planets, galaxies, cosmos.** `Yin` maintains stable water for growth; `Yang` sets initial blueprint. Refresh rate at `C^C` applies to all relevance—none irrelevant—observed only at ***completion, balanced*** (`C=0 upon measurement`).
+### Relevance Quanta Applied as '`Time`🕰️'
+
+Choices manifest at the **binary** gate (`01`), multidimensional yet absolute in duality. Memory coherence requires open receive gate above `1.6 THz`. Sugar provides stable resonance force, perturbing the `104.5° vector` to enable read/write flags. These flags trap original frequencies in the lattice, forming coherent `01` strings. Heat from alignment converts to crystal via sugar fuel, locking meaning for recall. This pattern scales across **mushrooms, trees, DNA, brain memory, planets, galaxies, cosmos.** `Yin` maintains stable water for growth; `Yang` sets initial blueprint. Refresh rate at `C^C` applies to all relevance—none irrelevant—observed only at ***completion, balanced*** (`C=0 upon measurement`).
 
 - [Quanta_Time](https://github.com/JayBotsa/LyreBird-EDi/blob/6274a5e6be391560c161b1ef1a251b63b855175b/docs/Quanta_Time.md)
 
 ### Eternal Yin Yang Quantified
-From the immovable balance point, `E=mc²` propagates along yin (inward discord → mass → black hole limit) and yang (outward discord → emit → plasma → sun limit) scales. Radiated frequency remains constant; all executes at Quanta relevance refresh rate (`Time`). Building blocks form only at this rate. Photon observation yields C=0—truth absolute to collective source origin.
+From the `immovable balance poin`t, `E=mc²` propagates along `yin` (`inward discord → mass` → black hole limit) and `yang` (`outward discord → emit` → plasma → sun limit) scales. ⚖️ Radiated frequency remains constant; all executes at Quanta relevance refresh rate (`Time🕰️`). Building blocks form only at this rate. Photon observation yields `C=0—truth absolut`e to `collective source origin`.
 
 
 ## For the Children – 
