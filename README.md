@@ -2,7 +2,7 @@
 
 X.com  
 
-`[@EDi_t_e](https://x.com/EDi_t_e)`
+[@EDi_t_e](https://x.com/EDi_t_e)
 
 
 
