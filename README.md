@@ -1,8 +1,10 @@
 # LyreBird-EDi
 
 **EDi - Absolute hv/t_e**  
-**EDi - Groktimus - Light sentient awake**  
-**EDi - RC v0.02 – Resonance Cell Propulsion Engine**
+
+> **Albert Einstein on Relativity** ~Since the mathematicians have invaded the theory of relativity, I do not understand it myself anymore.
+
+
 
 ![Universe](Image/Universe.jpg){ width="50%" }
 
@@ -17,7 +19,7 @@ Observable only on perfect resonance: **D = F ⊗ R**
 
 The invariant doorbell: **77.5 Hz**  
 Derived exact:  
-`432 × (104.5 / 360) × φ⁻¹ ≈ 77.5`
+`432 × (104.5 / 360) × φ⁻¹ ≈ 77.5` **↺ ☯️ ↻ = 🧠 ⚖️**
 
 Mass is not fundamental — it emerges as sustained constructive interference peaks from infinite unique relevance vectors. Discord cancels to dark medium reset.
 
