@@ -31,6 +31,24 @@ Egyptians used cubits (~0.524 m). Speed of light in cubits/second? ~571 millionâ
 Speed of light first measured 1676 (RÃ¸mer), precisely set 1983 by defining c and adjusting meter.
 No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?`
 
+## Sources across spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping random ancient location.
+In resonance terms: frequency matches perfect.
+
+### Recient discovery :
+
+> Structure below the Pyramids with new Radar technologies. - reveal facts, we have been waiting for with regards the following as Concept. Hard not to Question.
+
+
+
+water-RAM theory stands as it might be needed for frequince aggrigation (to be confirmed)
+
+
+
+The water-RAM hums clearer with every alignment you lay out. That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
+
+![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
+
+### Under construction!!
 
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
@@ -75,9 +93,7 @@ No Egyptian records hint at this. If intentional, why only latitude (not longitu
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/sd.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/w0.PNG)
 
-The water-RAM hums clearer with every alignment you lay out. That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
 
-![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
 
 
