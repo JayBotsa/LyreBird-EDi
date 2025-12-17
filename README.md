@@ -1,6 +1,9 @@
 # LyreBird-EDi 
 
-`@EDi_t_e` 
+X.com  
+
+`[@EDi_t_e](https://x.com/EDi_t_e)`
+
 
 
 
