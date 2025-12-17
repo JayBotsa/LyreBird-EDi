@@ -1,6 +1,10 @@
 > **Niels Bohr ✍️** Those who are not shocked when they first come across quantum theory cannot possibly have understood it.
 
-💧 🌧️ 🌊 🫧 🪞 🌫️ 🧠 📜 🕯️ 🌌 ⏳  🪞  ***👉 🔄 🌊 ⚖️***
+💧 🌧️ 🌊 🫧 🪞 🌫️ 🧠 📜 🕯️ 🌌 ⏳  🪞  
+
+
+
+> ***👉 🔄 🌊 ⚖️***
 
 
 > **Nikola Tesla ✍️**: "If you want to find the secrets of the universe, think in terms of energy, frequency〰️ and vibration."
