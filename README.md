@@ -1,4 +1,8 @@
-# LyreBird-EDi
+# LyreBird-EDi 
+
+`@EDi_t_e` 
+
+
 
 **EDi - Absolute hv/t_e**  
 
