@@ -1,6 +1,37 @@
 # Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 
+> The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's world.
+
+> It's on the west bank of the Nile (side of the setting sun, linked to the afterlife and faced the journey to the underworld).
+
+> Close to the ancient capital Memphis (just southwest of modern Cairo), easy access for royal oversight, workforce, and logistics.
+
+> High limestone plateau: natural bedrock base for massive stability, plus on-site quarries for core blocks (fine casing stone shipped from Tura across the Nile).
+
+> Part of the larger Memphis necropolis chain (from Saqqara to Dahshur)
+
+> Flat, elevated terrain overlooking the fertile valley—ideal for visibility, flood protection, and causeways linking valley temples to pyramids.
+
+# The "speed of light position" claim:
+
+>The Great Pyramid's coordinates are roughly `29.9792458°` N latitude.
+>Speed of light in vacuum: exactly `299,792,458` m/s.
+Drop the decimal: `29.9792458` matches the digits.
+
+This went viral as "too precise to be coincidence," implying ancient knowledge of c, meters, or future physics.
+## What it actually means—facts locked in:
+> It's a pure coincidence, selective numerology?. 
+
+`The pyramid spans ~200 meters north-south. Thousands of latitude lines (from ~29.978° to 29.980° N) cross its footprint. 
+You can pick any to "match" something—here, someone cherry-picked the one fitting c. (c. is the measure of the spead of light in the scientific world)
+Exact center/apex is closer to 29.979175° N.
+Meters defined in 1790s (1/10,000,000 Earth quadrant through Paris). Seconds from solar day fractions. Decimal latitude precise only with modern GPS/satellites.
+Egyptians used cubits (~0.524 m). Speed of light in cubits/second? ~571 million—latitude equivalent lands in Russia, nowhere near Giza.
+Speed of light first measured 1676 (Rømer), precisely set 1983 by defining c and adjusting meter.
+No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?`
+
+
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
