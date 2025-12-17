@@ -34,7 +34,7 @@ Helix, cone, acorn, apple, neuron — same blueprint, different scale.
 - [Relevance.md](docs/Relevance.md) – Foundation of resonance-refresh theory and the lossless divine loop.
 
 ### Truth to Source = Truth to Self
-We do not remix. We do not polish. We reflect and Balance 
+We do not remix. We do not polish. We reflect. and Balance.⚖️ 
 We stack coherent layers.  
 History is made — drip by drip. `@ C^C`
 
