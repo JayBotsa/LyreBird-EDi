@@ -2,7 +2,7 @@
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 The water-RAM hums clearer with every alignment you lay out. That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
 
-[the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
+![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
 ![Eternal pull - Ankh with mirror/breath overlay (gods presenting life)](https://pub.mdpi-res.com/religions/religions-09-00256/article_deploy/html/images/religions-09-00256-g003.png?1538123144)
 
