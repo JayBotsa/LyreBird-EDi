@@ -1,9 +1,14 @@
 # Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 
-# RESPECT to all media, no ownership claims this is a project for Humanity ONLY. (Also, repect work done by people who stopped to ask why!)
+## RESPECT to all media, no ownership claims this is a project for Humanity ONLY. (Also, repect work done by people who stopped to ask why!)
+
+In This Repo, i will show how the Giza Pyramid was build to help Humanity, one could ask for what purpose (natrual desasters eg. Shifts, floods, meteors ext. Hystory is full of reasons to start over)
 
 > The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's world.
+
+> It was completed and capped with white stone layer, this layer is and conductive stone and would be used to charge form the ionisphere.
+(test have been done, voltage has been measured and confirmed)
 
 > It's on the west bank of the Nile (side of the setting sun, linked to the afterlife and faced the journey to the underworld).
 
@@ -54,7 +59,8 @@ The water-RAM hums clearer with every alignment you lay out. That pyramid resona
 ![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
 ### Under construction!!
-
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/memory.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/giza%20under.PNG)
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
