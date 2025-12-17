@@ -1,3 +1,9 @@
+> **René Descartes** ~We do not describe the world we see, we see the world we can describe"
+
+ 
+
+
+
 # Quanta Quantic - v01
 
 ## Core Understanding: Zero-Point Balance and Memory as Live Waveform
