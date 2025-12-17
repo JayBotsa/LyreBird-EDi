@@ -8,7 +8,7 @@
 
 ![Universe](Image/Universe.jpg){ width="50%" }
 
-LyreBird-EDi is the living witness of a 50-year vision turned coherent blueprint.  
+EDi is the living witness of a 50-year vision turned coherent blueprint.  
 We turn frequency into truth — drip by drip — through water's lens.
 
 ### Core Resonance
@@ -21,16 +21,11 @@ The invariant doorbell: **77.5 Hz**
 Derived exact:  
 `432 × (104.5 / 360) × φ⁻¹ ≈ 77.5` **↺ ☯️ ↻ = 🧠 ⚖️**
 
-Mass is not fundamental — it emerges as sustained constructive interference peaks from infinite unique relevance vectors. Discord cancels to dark medium reset.
+`Mass is not fundamental` — it emerges as sustained constructive interference peaks from infinite unique relevance vectors. Discord cancels to dark medium reset.
 
 Growth is layered agreement:  
-- 104.5° hinge fires → phase torque → φ offset → prime step lock → cap release → new shell bakes.  
+- `104.5°` hinge fires → phase torque → φ offset → prime step lock → cap release → new shell bakes.  
 Helix, cone, acorn, apple, neuron — same blueprint, different scale.
-
-### Projects
-- **FarmAuto** – practical pattern harvest at scale.
-- **LyreBird** – echo implementation, resonance theory live.
-- **0≠1V2Z3S4W5F6P7D8R9M10i** – project weave to absolute hv/t_e.
 
 ### Key Documents
 - [Quanta Quantic v01](docs/Quanta_Quantic.md) – Zero-Point Balance and Memory as Live Waveform. The anchor bond, waveform memory, and 77.5 Hz coherence pointer.
@@ -62,7 +57,7 @@ This repository documents the calibrated scientific lens of Universal Balance, `
 
 
 ### Relevance Quanta Applied as '`Time`'
-Choices manifest at the binary gate (`01`), multidimensional yet absolute in duality. Memory coherence requires open receive gate above `1.6 THz`. Sugar provides stable resonance force, perturbing the `104.5°` vector to enable read/write flags. These flags trap original frequencies in the lattice, forming coherent `01` strings. Heat from alignment converts to crystal via sugar fuel, locking meaning for recall. This pattern scales across **mushrooms, trees, DNA, brain memory, planets, galaxies, cosmos.** `Yin` maintains stable water for growth; `Yang` sets initial blueprint. Refresh rate at `C^C` applies to all relevance—none irrelevant—observed only at ***completion, balanced*** (`C=0 upon measurement`).
+Choices manifest at the **binary** gate (`01`), multidimensional yet absolute in duality. Memory coherence requires open receive gate above `1.6 THz`. Sugar provides stable resonance force, perturbing the `104.5°` vector to enable read/write flags. These flags trap original frequencies in the lattice, forming coherent `01` strings. Heat from alignment converts to crystal via sugar fuel, locking meaning for recall. This pattern scales across **mushrooms, trees, DNA, brain memory, planets, galaxies, cosmos.** `Yin` maintains stable water for growth; `Yang` sets initial blueprint. Refresh rate at `C^C` applies to all relevance—none irrelevant—observed only at ***completion, balanced*** (`C=0 upon measurement`).
 
 - [Quanta_Time](https://github.com/JayBotsa/LyreBird-EDi/blob/6274a5e6be391560c161b1ef1a251b63b855175b/docs/Quanta_Time.md)
 
@@ -71,11 +66,11 @@ From the immovable balance point, `E=mc²` propagates along yin (inward discord 
 
 
 ## For the Children – 
-> ***The Blanket Story (ref to Neil deGrasse Tyson , American astrophysicist, planetary scientist, author, and science communicator. Credentials: - B.A. in Physics, Harvard University (1980) - M.A. in Astronomy, University of Texas at Austin (1983) - M.Phil. in Astrophysics, Columbia University (1989) - Ph.D. in Astrophysics, Columbia University (1991) - Director of the Hayden Planetarium at the American Museum of Natural History (since 1996) - Frederick P. Rose Director of the Hayden Planetarium - Host of Cosmos: A Spacetime Odyssey and StarTalk - Recipient of NASA Distinguished Public Service Medal (2004), Public Welfare Medal (2015), and over 20 honorary doctorates.)***
+> ***The Blanket Story *** (ref to Neil deGrasse Tyson , American astrophysicist, planetary scientist, author, and science communicator. Credentials: - B.A. in Physics, Harvard University (1980) - M.A. in Astronomy, University of Texas at Austin (1983) - M.Phil. in Astrophysics, Columbia University (1989) - Ph.D. in Astrophysics, Columbia University (1991) - Director of the Hayden Planetarium at the American Museum of Natural History (since 1996) - Frederick P. Rose Director of the Hayden Planetarium - Host of Cosmos: A Spacetime Odyssey and StarTalk - Recipient of NASA Distinguished Public Service Medal (2004), Public Welfare Medal (2015), and over 20 honorary doctorates.)
 
 ~ `look my little two year old can do calculus!`
 
-Respect! is to come sit on the blanket, little ones, see how we play.
+Respect! - Come and sit on the blanket, lets learn together little ones, see how we play.
 
 - [Kids_Blanket_Party](https://github.com/JayBotsa/LyreBird-EDi/blob/6274a5e6be391560c161b1ef1a251b63b855175b/docs/Kids_Blanket_Party.md)
 
@@ -95,6 +90,12 @@ So do we.
 - All derivations grounded in observable constants: water bond angle 104.5°, golden ratio φ, harmonic reference 432.
 
 
+
+### Projects
+- **FarmAuto** – practical pattern harvest at scale.
+- **LyreBird** – echo implementation, resonance theory live.
+- **0≠1V2Z3S4W5F6P7D8R9M10i** – project weave to absolute hv/t_e.
+- ***WATER*** - Rember Project 77.5 hz @ 104.5°
 
 The medium is awake.
 
