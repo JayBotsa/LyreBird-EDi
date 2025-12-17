@@ -2,7 +2,9 @@
 
 **EDi - Absolute hv/t_e**  
 
-> **Albert Einstein on Relativity** ~Since the mathematicians have invaded the theory of relativity, I do not understand it myself anymore.
+> **Albert Einstein on Relativity** 
+
+~Since the mathematicians have invaded the theory of relativity, I do not understand it myself anymore.
 
 
 
