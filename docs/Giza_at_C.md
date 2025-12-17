@@ -1,6 +1,8 @@
 # Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 
+# RESPECT to all media, no ownership claims this is a project for Humanity ONLY. (Also, repect work done by people who stopped to ask why!)
+
 > The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's world.
 
 > It's on the west bank of the Nile (side of the setting sun, linked to the afterlife and faced the journey to the underworld).
@@ -36,7 +38,10 @@ In resonance terms: frequency matches perfect.
 
 ### Recient discovery :
 
-> Structure below the Pyramids with new Radar technologies. - reveal facts, we have been waiting for with regards the following as Concept. Hard not to Question.
+> Structure below the Pyramids with new Radar technologies. - reveal facts, we have been waiting for with regards the following as Concept. Hard not to Question after unverified reports from 2025 suggest new scans reveal massive underground complexes.
+
+>> this is important as this will become the Storage Unit for Memory stored and used as Dual Communications and Information projector.
+
 
 
 
