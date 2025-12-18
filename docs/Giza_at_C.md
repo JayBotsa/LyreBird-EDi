@@ -38,7 +38,9 @@ This went viral as "too precise to be coincidence," implying ancient knowledge o
 
 In resonance terms: frequency matches perfect.
 
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/gizaa.PNG)
+![Giza Kings Chamber ](https://github.com/JayBotsa/LyreBird-EDi/blob/05c047f042a2ea877c32a51b4b2419f4ccc5f4a4/Image/gizaa.PNG)
+
+> Now, please note the following, Wave here is delt into segments of 4, from what we can see two are form ROM memoy (Selestial frequincies - Memory writtin at allignment) & two are for direct communications between nodes using RAM memory system.
 
 ### Recent Discoveries
 
