@@ -175,7 +175,7 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/w0.PNG)
 
-> Above : 
+> Above : The positions of the wings are also some indication of communication it seems, some up some down or both up..(need further studies)
 
 
 
