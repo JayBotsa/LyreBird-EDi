@@ -58,7 +58,7 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g0.PNG)
 
-> Note the earth being used for transmetion on the 432 hz (Goldilocks frequincy) connecting node along earth frequincy as carrier
+> Note the earth field being used for transmission the 432 hz (Goldilocks frequincy), connecting nodes along earth's frequincy as carrier.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g3.PNG)
 
