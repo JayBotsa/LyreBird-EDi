@@ -142,9 +142,19 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
 
+> See above how Horus is drawing from Channel 2/4 to judge the truth form the Pyramid.
+
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f9.PNG)
 
+> The accuser it seems.
+
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/ffg.PNG)
+
+> Above : Horus passing Judgement
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/88185280a03a85917757f3fdf25e4e4b014ff4f6/Image/bal_acused.PNG)
+
+> The accused it seems.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g00.jpg)
 
