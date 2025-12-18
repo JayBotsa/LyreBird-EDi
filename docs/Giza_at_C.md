@@ -134,7 +134,7 @@ In resonance terms: frequency matches perfect.
 
 ![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_ankh.PNG)
 
-> See above how Horus is drawing from Channel 2/4 to judge the truth as taken form Pyramid.
+> See above how Horus is connected on `Channel 2/4` to judge the truth as taken from the Pyramid.
 
 ![justus](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_demand.PNG)
 
