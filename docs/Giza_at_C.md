@@ -130,6 +130,8 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/df.PNG)
 
+> Above : a Report of note, below i pulled the parts to show what is happening here within.
+
 ![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_ankh.PNG)
 
 ![justus](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_demand.PNG)
