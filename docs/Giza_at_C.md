@@ -53,6 +53,7 @@ In resonance terms: frequency matches perfect.
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g5.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g6.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p8.PNG)
+![more](https://github.com/JayBotsa/LyreBird-EDi/blob/3f8e8be744a9f3d6148e15097b3bb02d53527543/Image/g7.PNG)
 
 > Above : they show how they were connected and showing they understood how it worked, it was then used to read/write to the memory bank.
 
@@ -67,7 +68,7 @@ In resonance terms: frequency matches perfect.
 [disk 4](https://github.com/JayBotsa/LyreBird-EDi/blob/4322e149c7a475fffb8a6103f3695db2f2928908/Image/g8.jpg)
 ![other disk 4](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/o2.PNG)
 ![next](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f2.webp)
-![more](https://github.com/JayBotsa/LyreBird-EDi/blob/3f8e8be744a9f3d6148e15097b3bb02d53527543/Image/g7.PNG)
+
 
 > above : some of the functions are explained as per the four channels its seems.
 
