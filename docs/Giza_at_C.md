@@ -82,6 +82,12 @@ In resonance terms: frequency matches perfect.
 
 2. this can aslo be seen the declarations in Hieroglyphs, if important i will declare who what and why it was used (more study needed here, but the trend is clear)
 
+![channel1](https://github.com/JayBotsa/LyreBird-EDi/blob/70c3dfdb5bad70f840ee83fed7655b216d0b665e/Image/bb1.PNG)
+![channel2](https://github.com/JayBotsa/LyreBird-EDi/blob/70c3dfdb5bad70f840ee83fed7655b216d0b665e/Image/bb2.PNG)
+![channel3](https://github.com/JayBotsa/LyreBird-EDi/blob/70c3dfdb5bad70f840ee83fed7655b216d0b665e/Image/bb3.PNG)
+
+3. each pharaoh or orgained, spoke then from/to their channel. This will be indecated with vertical lines or horizontal line to allocate channels as seen above. 
+
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p00.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p1.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p2.PNG)
