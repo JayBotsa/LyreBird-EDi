@@ -57,7 +57,7 @@ In resonance terms: frequency matches perfect.
 
 ![Crystal Skulls as medium & reflection ](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/skulls.PNG)
 
-![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/Sabu.PNG)
+![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/46eaf0c65afb204b98c0f487ee21d15b3983eb95/Image/sabu.PNG)
 
 > The water-RAM (Known water system that creates a pulse that is also used for the same system). That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
 
