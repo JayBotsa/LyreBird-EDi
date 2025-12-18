@@ -188,7 +188,7 @@ Spelling fixed, grammar smoothed where needed, all your links and placements kep
 
 ![Memory Device concept at ~1.6 THz range—potential frequency node](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/giza%20under.PNG)
 
-> Here we deduce how the Sabu Disk and crystal skulls communicated on nodes—at fractions from the source frequency at Giza.
+> Here we deduce how the Sabu Disk and crystal skulls communicated on nodes—at fractions from Giza the source frequency.
 
 ![Crystal Skulls as medium & reflection (clear quartz: piezoelectric coefficient d33 ≈ 2.3 pC/N; generates voltage under vibration; resonates strongly in kHz to GHz, with natural phonon modes extending to THz—ideal for frequency storage/decoding via reflection or vibration)](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/skulls.PNG)
 
