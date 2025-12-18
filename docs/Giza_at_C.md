@@ -38,6 +38,8 @@ This went viral as "too precise to be coincidence," implying ancient knowledge o
 
 In resonance terms: frequency matches perfect.
 
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/gizaa.PNG)
+
 ### Recent Discoveries
 
 > These are key, as the system may function as a Storage Unit for Memory—stored and used as Dual Communications and Information Projector.  
