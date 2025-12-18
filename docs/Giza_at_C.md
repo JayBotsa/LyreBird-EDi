@@ -53,6 +53,11 @@ In resonance terms: frequency matches perfect.
 
 ![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/giza%20under.PNG)
 
+> Here we will explain how they used the Sabu disk and the crystal skulls to communitcate on node at fragtions from the souce frequince at Giza
+
+![Crystal Skulls as medium & reflection ](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/skulls.PNG)
+
+![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/Sabu.PNG)
 
 > The water-RAM (Known water system that creates a pulse that is also used for the same system). That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
 
