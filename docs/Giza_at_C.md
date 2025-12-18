@@ -54,8 +54,9 @@ In resonance terms: frequency matches perfect.
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g6.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p8.PNG)
 ![more](https://github.com/JayBotsa/LyreBird-EDi/blob/3f8e8be744a9f3d6148e15097b3bb02d53527543/Image/g7.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f0.PNG)
 
-> Above : they show how they were connected and showing they understood how it worked, it was then used to read/write to the memory bank.
+> Above : they show how they used the frequincies and also showing they understood how it worked, it was then used to read/write to the memory bank.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g0.PNG)
 
@@ -130,7 +131,7 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/df.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f0.PNG)
+
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f12.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f2.PNG)
 
