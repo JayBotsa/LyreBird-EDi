@@ -134,27 +134,35 @@ In resonance terms: frequency matches perfect.
 
 ![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_ankh.PNG)
 
+> See above how Horus is drawing from Channel 2/4 to judge the truth as taken form Pyramid.
+
 ![justus](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_demand.PNG)
-
-![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_pull.PNG)
-
-> from this image here, we can see some one where judged. we can see Horus and Anubis calling Balance. Yin & Yang - with the person being judged in the center and Anubis removing Life form him.(Ouch!) Note Horus is always Anchored to truth. Anu is the seeker. In water to we have two H bonds one always anchored to source Horus, and one alwasy seeking Anu.
-
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
-
-> See above how Horus is drawing from Channel 2/4 to judge the truth form the Pyramid.
-
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f9.PNG)
 
 > The accuser it seems.
 
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/ffg.PNG)
+![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_pull.PNG)
 
 > Above : Horus passing Judgement
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/88185280a03a85917757f3fdf25e4e4b014ff4f6/Image/bal_acused.PNG)
 
 > The accused it seems.
+
+> from this image here, we can see some one where judged. we can see Horus and Anubis calling Balance. Yin & Yang - with the person being judged in the center and Anubis removing Life form him.(Ouch!) Note Horus is always Anchored to truth. Anu is the seeker. In water to we have two H bonds one always anchored to source Horus, and one alwasy seeking Anu.
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
+
+
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f9.PNG)
+
+
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/ffg.PNG)
+
+
+
+
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g00.jpg)
 
