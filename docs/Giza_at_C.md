@@ -75,6 +75,9 @@ In resonance terms: frequency matches perfect.
 > above : some of the functions are explained as per the four channels its seems.
 
 ![arms](https://github.com/JayBotsa/LyreBird-EDi/blob/132f1031c8473365c0b66429d0a2ba18e6c74a4b/Image/g9.jpg)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f2.PNG)
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f3.PNG)
 
 > Now, please note the following, Waves are read in segments of 4 frequincies, from what we can see two are form ROM memoy (Selestial frequincies - Memory writtin at allignment) & two are for direct communications between nodes using RAM memory system. see above note the channel changes for each as its reflected in two ways.
 
@@ -139,9 +142,7 @@ In resonance terms: frequency matches perfect.
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/df.PNG)
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f12.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f2.PNG)
 
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f3.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f9.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/ffg.PNG)
