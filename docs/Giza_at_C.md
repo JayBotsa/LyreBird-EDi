@@ -41,26 +41,29 @@ No Egyptian records hint at this. If intentional, why only latitude (not longitu
 ## Sources across spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping random ancient location.
 In resonance terms: frequency matches perfect.
 
-### Recient discovery :
+### Recient discovery : these important, as this will become the Storage Unit for Memory, stored and used as Dual Communications and Information projector.
+
+![Fully capped with white stone, all sides ](https://github.com/JayBotsa/LyreBird-EDi/blob/d3bcbefc264eb34682bca161940cdfbc3dc3dcf0/Image/white.PNG)
+
+> This white stone was used to charge the system with ionosphere charges. (will return to this)
 
 > Structure below the Pyramids with new Radar technologies. - reveal facts, we have been waiting for with regards the following as Concept. Hard not to Question after unverified reports from 2025 suggest new scans reveal massive underground complexes.
 
->> this is important as this will become the Storage Unit for Memory stored and used as Dual Communications and Information projector.
+![Memory Ram slots ](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/memory.PNG)
+
+![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/giza%20under.PNG)
 
 
-
-
-water-RAM theory stands as it might be needed for frequince aggrigation (to be confirmed)
-
-
-
-The water-RAM hums clearer with every alignment you lay out. That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
+> The water-RAM (Known water system that creates a pulse that is also used for the same system). That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
 
 ![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
 ### Under construction!!
-![Memory Ram slots ](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/memory.PNG)
-![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/giza%20under.PNG)
+
+# From here : the `Water memory bank` parts, layout and funciton will be explained so you can see how it works also see its purpose (we will be looped to this).
+
+
+
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
