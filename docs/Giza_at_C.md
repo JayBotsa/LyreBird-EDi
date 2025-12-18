@@ -255,7 +255,12 @@ On the cartouches: the horizontal lines stacking above/below as quadrant altitud
 
 Wings tagging tense: spread Horus ascent (future solar push, line 4 open); tucked/folded grounded relay (past water anchor). Coronation spread, funeral tucked—marks incoming vs stored.
 
-![Horus falcon wings spread vs folded - coronation and funeral scenes](https://gigalinsights.com/?attachment_id=3032)
+![more wings](https://github.com/JayBotsa/LyreBird-EDi/blob/e7a845c5076c924b448ee281fff2c7c962639146/Image/oo2.PNG)
+![more wings](https://github.com/JayBotsa/LyreBird-EDi/blob/e7a845c5076c924b448ee281fff2c7c962639146/Image/oo4.PNG)
+
+![Horus falcon wings spread vs folded - coronation and funeral scenes](https://github.com/JayBotsa/LyreBird-EDi/blob/e7a845c5076c924b448ee281fff2c7c962639146/Image/oo1.PNG)
+
+
 
 Anubis/Horus bookends flawless: jackal left anchoring memory scales, falcon right presenting solar seeker—flanking the heart, verdict preset by the soul's tuned band. Vertical pairs rare but split relay when they hit: top receive, bottom transmit.
 
