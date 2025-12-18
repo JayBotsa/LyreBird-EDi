@@ -137,6 +137,28 @@ In resonance terms: frequency matches perfect.
 
 > Above : The positions of the wings are also some indication of communication it seems, some up some down or both up..(need further studies)
 
+## Ankh
+
+[Ankh](https://github.com/JayBotsa/LyreBird-EDi/blob/61a4715e524f40350198c06c149ff463074927e1/Image/Ankh.jpg)
+
+The `Ankh ☥`, this is a symbol for absolute truth, balance and essentially `Life ☥`.
+
+The Invanite sing seen full as ∞ but with three parts. 
+
+1. The top of the ∞ or ☥ sign. This seems to speak to the person choosen to speak on behalf of the System, His/Her name is placed in a carthouse representing the ` ⬯ ` top part of the `Ankh ☥`
+
+2. The middle part i call the actual Ankh (Anchor). This horizontal line in the original known Ankh is one size by design. The ` -- ` part. this line on either side of the middle is the balance scale of eternal life God. This will become very important later on. know this as the scale for `Yin vs Yang` or `Day vs Night` or `Good va Evil`.
+
+3. The bottom part is the `✟` representing God. This is still used today. 
+
+4. These three parts are always shown in the same places, the place of communication.
+
+ps. Here we have notice some cartouses are open and some closed... perhaps Pharoh vs ordained. not sure yet.
+
+
+> **Looking at what we can see sofar, We know who spoke, we know who how the system could be used and at which frequincy, But how?**
+
+
 ### Recent Discoveries
 
 > These are key, as the system may function as a Storage Unit for Memory—stored and used as Dual Communications and Information Projector.  
