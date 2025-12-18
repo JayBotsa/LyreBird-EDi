@@ -76,7 +76,19 @@ In resonance terms: frequency matches perfect.
 
 > Now, please note the following, Waves are read in segments of 4 frequincies, from what we can see two are form ROM memoy (Selestial frequincies - Memory writtin at allignment) & two are for direct communications between nodes using RAM memory system. see above note the channel changes for each as its reflected in two ways.
 
-1. it seems the two hand out speak to some form of directional indicator 
+1. it seems the two arms/hands 💪💪 out speak to some form of directional indicator but is connected to different channels. one read one write we think. 
+
+2. this can aslo be seen the declarations in Hieroglyphs, if important i will declare who what and why it was used (more study needed here, but the trend is clear)
+
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p00.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p1.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p2.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p4.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p5.PNG)
+![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p6.PNG)
+
+> Above : the Triangle is the Pyramid, the smaller triangle within, the Kings chamber with the resonating stones. see they always placed next to the Ankh. (this will be explained later)
+
 
 
 ### Recent Discoveries
@@ -140,12 +152,7 @@ In resonance terms: frequency matches perfect.
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/o3.jpg)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/o4.jpg)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p0.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p00.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p1.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p2.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p4.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p5.PNG)
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/p6.PNG)
+
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/s1.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/sd.PNG)
