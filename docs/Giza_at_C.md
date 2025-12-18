@@ -61,7 +61,8 @@ In resonance terms: frequency matches perfect.
 
 > Note the earth field being used for transmission the 432 hz (Goldilocks frequincy), connecting nodes along earth's frequincy as carrier.
 
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g3.PNG)
+![connect1](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/g3.PNG)
+![connect2group](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
 
 > above : a Sabru Disk been used to read or write, note the staffs on either side, for two way communication.
 
@@ -126,7 +127,7 @@ In resonance terms: frequency matches perfect.
 
 
 
-![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/a3.PNG)
+
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/cx.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/df.PNG)
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f0.PNG)
