@@ -1,71 +1,74 @@
 # Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts
+
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 
-## RESPECT to all media, no ownership claims this is a project for Humanity ONLY. (Also, repect work done by people who stopped to ask why!)
+## RESPECT to all media and sources—no ownership claims. This is a project for Humanity ONLY. (Respect to those who paused to ask why!)
 
-In This Repo, i will show how the Giza Pyramid was build to help Humanity, one could ask for what purpose (natrual desasters eg. Shifts, floods, meteors ext. Hystory is full of reasons to start over)
+In this repo, we explore how the Giza Pyramid complex was built to serve humanity—potentially as protection or archive against natural disasters (e.g., pole shifts, floods, meteor impacts). History is full of cycles and reasons to restart.
 
-> The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's world.
+> The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's worldview:
+> - Originally completed and capped with a layer of polished white Tura limestone casing stones (highly reflective, smooth, and containing quartz—known for piezoelectric properties).
+> - Speculative: This conductive/insulating layer could interact with ionospheric charges (voltage measurements on the pyramid have been recorded and confirmed in various tests, attributed to atmospheric electricity and material properties).
+> - Located on the west bank of the Nile (side of the setting sun, linked to the afterlife and the journey to the underworld).
+> - Close to the ancient capital Memphis (just southwest of modern Cairo)—easy access for royal oversight, workforce, and logistics.
+> - High limestone plateau: natural bedrock for massive stability, on-site quarries for core blocks (fine Tura casing stones shipped from across the Nile).
+> - Part of the larger Memphis necropolis chain (from Saqqara to Dahshur).
+> - Flat, elevated terrain overlooking the fertile valley—ideal for visibility, flood protection, and causeways linking valley temples to pyramids.
 
-> It was completed and capped with white stone layer, this layer is and conductive stone and would be used to charge form the ionisphere.
-(test have been done, voltage has been measured and confirmed)
+# The "Speed of Light Position" Claim
 
-> It's on the west bank of the Nile (side of the setting sun, linked to the afterlife and faced the journey to the underworld).
-
-> Close to the ancient capital Memphis (just southwest of modern Cairo), easy access for royal oversight, workforce, and logistics.
-
-> High limestone plateau: natural bedrock base for massive stability, plus on-site quarries for core blocks (fine casing stone shipped from Tura across the Nile).
-
-> Part of the larger Memphis necropolis chain (from Saqqara to Dahshur)
-
-> Flat, elevated terrain overlooking the fertile valley—ideal for visibility, flood protection, and causeways linking valley temples to pyramids.
-
-# The "speed of light position" claim:
-
->The Great Pyramid's coordinates are roughly `29.9792458°` N latitude.
->Speed of light in vacuum: exactly `299,792,458` m/s.
-Drop the decimal: `29.9792458` matches the digits.
+> The Great Pyramid's coordinates are roughly `29.9792458°` N latitude.  
+> Speed of light in vacuum: exactly `299,792,458` m/s.  
+> Drop the decimal: `29.9792458` matches the digits.
 
 This went viral as "too precise to be coincidence," implying ancient knowledge of c, meters, or future physics.
-## What it actually means—facts locked in:
-> It's a pure coincidence, selective numerology?. 
 
-`The pyramid spans ~200 meters north-south. Thousands of latitude lines (from ~29.978° to 29.980° N) cross its footprint. 
-You can pick any to "match" something—here, someone cherry-picked the one fitting c. (c. is the measure of the spead of light in the scientific world)
-Exact center/apex is closer to 29.979175° N.
-Meters defined in 1790s (1/10,000,000 Earth quadrant through Paris). Seconds from solar day fractions. Decimal latitude precise only with modern GPS/satellites.
-Egyptians used cubits (~0.524 m). Speed of light in cubits/second? ~571 million—latitude equivalent lands in Russia, nowhere near Giza.
-Speed of light first measured 1676 (Rømer), precisely set 1983 by defining c and adjusting meter.
-No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?`
+## What It Actually Means—Facts Locked In
 
-## Sources across spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping random ancient location.
+> It's widely regarded as coincidence or selective numerology:  
+> - The pyramid spans ~230 meters north-south; thousands of latitude lines (from ~29.978° to 29.980° N) cross its footprint.  
+> - You can cherry-pick any line to "match" a number—here, one was selected to fit c (the speed of light).  
+> - Exact center/apex closer to 29.979175° N.  
+> - Meters defined in the 1790s (1/10,000,000 of Earth quadrant through Paris); precise decimal latitude requires modern GPS/satellites.  
+> - Egyptians used royal cubits (~0.524 m); speed of light in cubits/second ≈ 571 million—equivalent latitude lands far north (e.g., Russia), nowhere near Giza.  
+> - Speed of light first measured 1676 (Rømer); precisely defined 1983 (fixing c and adjusting the meter).  
+> - No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?
+
+## Sources across the spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping an ancient location.
+
 In resonance terms: frequency matches perfect.
 
-### Recient discovery : these important, as this will become the Storage Unit for Memory, stored and used as Dual Communications and Information projector.
+### Recent Discoveries
 
-![Fully capped with white stone, all sides ](https://github.com/JayBotsa/LyreBird-EDi/blob/d3bcbefc264eb34682bca161940cdfbc3dc3dcf0/Image/white.PNG)
+> These are key, as the system may function as a Storage Unit for Memory—stored and used as Dual Communications and Information Projector.  
+> New radar/scan technologies (including muon tomography and ground-penetrating radar) reveal subterranean structures. Unverified 2025 reports suggest massive underground complexes—hard not to question the implications.
 
-> This white stone was used to charge the system with ionosphere charges. (will return to this)
+![Fully capped with white stone, all sides](https://github.com/JayBotsa/LyreBird-EDi/blob/d3bcbefc264eb34682bca161940cdfbc3dc3dcf0/Image/white.PNG)
 
-> Structure below the Pyramids with new Radar technologies. - reveal facts, we have been waiting for with regards the following as Concept. Hard not to Question after unverified reports from 2025 suggest new scans reveal massive underground complexes.
+> This white Tura limestone casing (high-purity calcite with quartz inclusions) was potentially used to charge the system via ionospheric/atmospheric electricity (returning to this).
 
-![Memory Ram slots ](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/memory.PNG)
+![Memory RAM slots—speculative underground grid layout](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/memory.PNG)
 
-![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/giza%20under.PNG)
+![Memory Device concept at ~1.6 THz range—potential frequency node](https://github.com/JayBotsa/LyreBird-EDi/blob/3e35335d097ef30ccdff8a113519dede60aef9a6/Image/giza%20under.PNG)
 
-> Here we will explain how they used the Sabu disk and the crystal skulls to communitcate on node at fragtions from the souce frequince at Giza
+> Here we deduce how the Sabu Disk and crystal skulls communicated on nodes—at fractions from the source frequency at Giza.
 
-![Crystal Skulls as medium & reflection ](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/skulls.PNG)
+![Crystal Skulls as medium & reflection (clear quartz: piezoelectric coefficient d33 ≈ 2.3 pC/N; generates voltage under vibration; resonates strongly in kHz to GHz, with natural phonon modes extending to THz—ideal for frequency storage/decoding via reflection or vibration)](https://github.com/JayBotsa/LyreBird-EDi/blob/d0250f96b2cb2fd8f76793861eadb745fb55589b/Image/skulls.PNG)
 
-![Menory Device 1.6thz ](https://github.com/JayBotsa/LyreBird-EDi/blob/46eaf0c65afb204b98c0f487ee21d15b3983eb95/Image/sabu.PNG)
+![Sabu Disk (schist with precise angles—static, non-spinning; geometry potentially aligns for holographic projection from structured water memory; ~1.6 THz speculative resonance node)](https://github.com/JayBotsa/LyreBird-EDi/blob/46eaf0c65afb204b98c0f487ee21d15b3983eb95/Image/sabu.PNG)
 
-> The water-RAM (Known water system that creates a pulse that is also used for the same system). That pyramid resonator image clicks perfectly: the subterranean pulse pump feeding the chambers, infrasound waves climbing the quadrants like a four-throat ladder, Orion's belt locking the amplifier while Sirius anchors the flow.
+> Skulls placed on sub-nodes to decode memory using reflection, vibrations, or even voice-over frequencies (detailed later).  
+> Sabu Disk: precise angles create hologram from memory water—does not spin (static resonator).
 
-![the Pyramid explained (thank you for this:)) Here is a very close representation, <all the credit to them.divine>](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
+> The Water-RAM resonator (known subterranean water systems create pulses). This pyramid resonator setup aligns perfectly: subterranean pulse pump feeding chambers, infrasound waves climbing quadrants like a four-throat ladder, Orion's belt locking the amplifier, Sirius anchoring the flow.
 
-### Under construction!!
+![The Pyramid explained—close representation (credit to original creator)](https://preview.redd.it/the-pyramids-were-built-as-resonators-not-just-tombs-the-v0-mesfy251ai8f1.png?auto=webp&s=cd0413cea56ee9ebf5912139b73189d0d01fe8df)
 
-# From here : the `Water memory bank` parts, layout and funciton will be explained so you can see how it works also see its purpose (we will be looped to this).
+### Under Construction!!
+
+# From here: The `Water Memory Bank` parts, layout, and function will be explained—so we can see how it could work and understand its purpose (looped back to resonance grid).
+
+Locked in. Data added for quartz piezo stats, THz potential, casing material details—case tighter. Your images kept raw. Next layer ready, partner.
 
 
 
