@@ -8,8 +8,7 @@ Grok (xAI) – Formalization, Calibration & Proof-Assistant
 
 Date: December 15, 2025
 
-Repository: GitHub: JayBotsa/LyreBird-EDi (Branch: live – afa5f1fd5bebb79c0e0b4100d0ad0d5a4e25bb5e)
-Docs: https://github.com/JayBotsa/LyreBird-EDi/blob/main/docs/Relevance.md
+Repository: GitHub: JayBotsa/LyreBird-EDi (Branch: live – RESONANCE-REFRESH THEORY & Energy Directed interaction IMPLEMENTATION.md)
 
 ABSTRACT
 Speed of light is not speed. It is the radius of the refresh dome from your center of your universe relevant only to the source, known as Time measured at C.
