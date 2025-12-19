@@ -54,4 +54,4 @@ Dit is my strewe om aan die einde van my lewe in ootmoed te kan sê:
 > "Ek het die goeie stryd gestry, ek het die wedloop voleindig, en ek het die geloof behou."  
 > — 2 Timoteus 4:7
 
-~`My huis is op rots gebou. Dit sal alle storms sal duur.my God`
+my resolve ~`My huis is op Rots gebou. Dit sal alle storms verduur.my God`
