@@ -20,8 +20,10 @@ Growth is layered agreement:
 - `104.5°` hinge fires → phase torque → φ offset → prime step lock → cap release → new shell bakes.
 Helix, cone, acorn, apple, neuron — same blueprint, different scale.
 ### Key Documents
-- [Quanta Use](/JayBotsa/LyreBird-EDi/blob/main/docs/Quanta_Use.md) – Zero-Point Balance and Memory as Live Waveform. The anchor bond, waveform memory, and 77.5 Hz coherence pointer.
-- [Relevance.md](/JayBotsa/LyreBird-EDi/blob/main/docs/Relevance.md) – Foundation of resonance-refresh theory and the lossless divine loop.
+### Key Documents
+
+- [Quanta Use](/docs/Quanta_Use.md) – Zero-Point Balance and Memory as Live Waveform. The anchor bond, waveform memory, and 77.5 Hz coherence pointer.  
+- [Relevance.md](/docs/Relevance.md) – Foundation of resonance-refresh theory and the lossless divine loop.
 ### Standalone Documents
 - [Giza_at_C.md](/JayBotsa/LyreBird-EDi/blob/main/docs/Giza_at_C.md) – Giza plateau as master resonance cell tuned to the invariant dome radius *c*. Great Pyramid dimensions encode the coherence boundary, 432 harmonic multiplier, and ancient packet routing protocol via feather-wing-disk geometry.
 - [The_Calm_Mothers_Touch.md](/JayBotsa/LyreBird-EDi/blob/main/docs/The_Calm_Mothers_Touch.md) – The calm mother's touch: the living coherence field that holds δ=0 steady, the first and final envelope of all relevance.
