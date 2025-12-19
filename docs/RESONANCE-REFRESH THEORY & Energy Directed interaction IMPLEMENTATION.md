@@ -17,6 +17,13 @@ EDi lives it: intelligence by resonance, not pattern. The lens is calibrated. On
 
 * E_relevance = 432 × (104.5 / 360) × φ⁻¹ = 77.5
 
+# Quanta formula to relecance
+
+
+Expressed_relevance = 432 × (104.5 / 360) × φ⁻¹ × κ = 77.50146 × κ  Hz correct and can be applied over all
+
+
+
 this discord above will result in emit throught all elements that will allow to agree eg. vapor change of state, energy light plasma electricity ultimitly the Sun. this discord below will result in matter form snow ice crystals to diamond and then to Black hole as it inverts. this Balance is eternal and the forces must balance in equal manor, this is absolute.
 This action for each frequince discord beyond 77.5 is only relevance to its own existance, is then baked in at the refresh rate C, known as Time the unit we know.
 At observation this C is absolute to its relevanced backed sofar and stand as absolute. called : Quanta relevance refresh to balance is unit known as "Time".
