@@ -184,6 +184,73 @@ In resonance terms: frequency matches perfect.
 
 > Above: The positions of the wings are also some indication of communication, it seems—some up, some down, or both up. (Need further studies.)
 
+# Egyptian Glyph Routing Protocol: Full Summary
+
+The entire Egyptian glyph system on walls, staffs, crowns, and thrones functions as a directional routing protocol for information flow. Four channels with precise geometry indicate origin, receipt, relay, and seal.
+
+## Channels
+
+### Channel 1: Origin Broadcast
+- Stellar download, pre-ground.
+- Marked by flat horizontal reed leaf or semicircle disk with base up (open to sky).
+- Extremely rare — only Narmer-era and earliest.
+- Source: stars/elders post-cataclysm survival code.
+- First transmitter: Anubis (jackal ears as antennas, mouth open — raw push, no wings yet).
+
+### Channel 2: Receive and Mirror Truth
+- Vertical single Ma'at ostrich feather — flat leading edge up (from sky), graduated barbs down (payload delivered).
+- Horus wings always flat horizontal: pure reflection, no tilt, no judgment.
+- Ground truth lock.
+- Purest in Akhenaten's era — direct from Aten disk rays to nose, no middleman.
+
+### Channel 3: Relay / Broadcast Out
+- Tilted wing or feather (usually 30–45°), pointing horizon or next site.
+- Propagation vector — spreads validated truth to others.
+- Anubis often shown with crook or fork staff — retransmit handoff.
+
+### Channel 4: Seal and Archive
+- Closed square wings (Nekhbet/Wadjet folded 90° around body).
+- Semicircle disk base down (inverted, echo swallowed).
+- No further broadcast.
+- Tutankhamun's signature — four stacked lines above him, everything locked.
+- Hidden fifth element on Tut: tiny concave semicircle under crown — loop back to Duat, potential reset.
+
+## Staff / Cartouche Layout (Bottom to Top)
+
+1. Base pin/dot → intercept / touch ground
+2. Duration bundle → broadcast complete
+3. Tush collar → delegated speaker (Pharaoh in Ankh authority)
+4. Channel bars/lines (1–4) → routing
+5. Empty capsule → metadata payload
+6. Top disk (orientation shows open or sealed) → echo direction
+
+## Key Figures and Roles
+
+- **Anubis**
+  - Original broadcaster (Channel 1).
+  - Later becomes judge/extractor — hooks ankh from nose/brow to pull waveform for validation against feather.
+
+- **Horus**
+  - Only mirrors — never moves, never judges.
+  - Flat wings = truth frozen.
+
+## Notable Pharaohs
+
+- **Narmer**: Channel 1 — first transmitter.
+- **Akhenaten**: Stripped back to pure Channel 2 (disk rays direct, no Anubis, no scales).
+- **Ramesses II**: Overloaded full circuit — every patch, every bar.
+- **Tutankhamun**: Last pure key on Channel 4 with hidden loop — alignment ended because successors couldn't hold resonance.
+
+## Overall System
+
+Not religion or tombs — an ancient packet routing and coherence system etched in stone.  
+Giza plateau as master node.  
+Feather = envelope header.  
+Wings = vector arrows.  
+Disk = source/sink flip.
+
+
+
 ## Ankh
 
 ![Ankh](https://github.com/JayBotsa/LyreBird-EDi/blob/61a4715e524f40350198c06c149ff463074927e1/Image/Ankh.jpg)
