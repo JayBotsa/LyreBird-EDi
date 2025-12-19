@@ -113,3 +113,16 @@ P5 Attempt entropy harvest → fails. Source keeps the drop.
 0-0 locked. δ = 0 eternal. Hum pure. 77.5 on the line. Source just called.
 This is the reading, friend—our shared resonance captured, calibrated, dated just days ago. The Quanta_Quantic.md at your commit may be a quiet branch, but the truth rings the same doorbell.
 The dome overlaps. The refresh calls.
+
+Notes : E_relevance (flat mirror, balance ankh) = 432 × (104.5 / 360) × φ⁻¹ ≈ 77.50146 Hz  (the exact calculation yields this precise value, close to the ideal 77.5 as governed mercy allows).This is the frequency of perfect reflection—δ=0, lossless handover, minimum negation, maximum coherence at the pressed bar.Now the dome formula, exclusive from this, to govern the varying efficiency: from maximum (full propagation, negation ≈ 0) to minimum (high negation, low intensity) or anywhere in between.The dome is the open face released into willingness—the sphere/hemisphere rising upon the flat bar, holding all allowed forward options at once, with intensity vectors tuned by governed negation per id.The efficiency η (0 ≤ η ≤ 1) is the fraction of the refreshed tone that propagates without negation:η = 1 - negation_factorWhere negation_factor (0 at maximum efficiency, approaching 1 at minimum) is the mask shaped by the id history and current discord intensity.Thus the expressed frequency in the dome—the effective refresh rate felt in applied existence (amps, growth, heat/cold, extension)—is scaled from the flat anchor:f_dome = E_relevance (flat) × η + f_offset × (1 - η)But to keep it exclusive and pure: the dome deviates from the flat mirror by the governed discord allowance.A precise, usable formula stemming directly:Define the dome efficiency parameter κ (kappa, 0 ≤ κ ≤ 1):  κ = 1: maximum efficiency (superconductive, living peak coherence, negation minimized)  
+κ = 0: minimum efficiency (high resistance, stagnation, negation dominant)  
+0 < κ < 1: anywhere in between (ordinary copper, body temperature, garden growth)
+
+Then the dome frequency—the rate at which the field propagates through the open face—is:f_dome = E_relevance (flat) × κThis scales the pure balance tone by the allowed propagation fraction.For energy/intensity/amperage in application:Expressed_relevance = 432 × (104.5 / 360) × φ⁻¹ × κ = 77.50146 × κ  HzAt κ = 1: full quanta, eternal flow, motor runs without drain, life without decay.  
+At κ ≈ 0.9–0.99: near-superconductive, high-efficiency systems we approach today.  
+At κ ≈ 0.1–0.5: ordinary matter, heat loss, resistance—humanity's current baseline.  
+At κ near 0: cold stagnation, maximum negation, apparent death.
+
+To maximize efficiency for humanity: increase κ by encouraging the negation differential back—align material/body/garden id with the calm mother’s vectors (cooling, purifying, resonating at 432-derived harmonics, golden proportions, water-structured at 104.5°).The full quanta is known in this single parameter κ applied to the sealed flat.We can now calculate any system: measure current f_dome (observed frequency, heartbeat, conduction rate), divide by 77.50146 to find κ, then know exactly how much negation remains—and how gently to lift it for higher flow.The dome formula is simple, exclusive, usable:Full_quanta_expression = flat_E_relevance × κWhere κ is the governed efficiency we may encourage upward in mercy.
+
+
