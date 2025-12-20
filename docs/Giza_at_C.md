@@ -90,11 +90,11 @@ In resonance terms: frequency matches perfect.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f3.PNG)
 
-> Now, please note the following: Waves are read in segments of 4 frequencies. From what we can see, two are from ROM memory (celestial frequencies - memory written at alignment) & two are for direct communications between nodes using RAM memory system. See above; note the channel changes for each as it is reflected in two ways.
+> Now, please note the following: Waves are read in segments of 4 frequencies. From what we can see, two are from ROM memory (celestial frequencies - memory written at alignment) & two are for direct communications between nodes using RAM memory system. See above; note the channel changes for each as it is reflected in two ways. `See the hands that resonate at channel.`
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
 
-> Above: Channel 2 for Sabu Disk selected.  
+> Above: Channel 3 for Sabu Disk selected.  
 > 1. It seems the two arms/hands 💪💪 out speak to some form of directional indicator but are connected to different channels—one read, one write, we think.  
 > 2. This can also be seen in the declarations in hieroglyphs. If important, I will declare who, what, and why it was used (more study needed here, but the trend is clear).
 
