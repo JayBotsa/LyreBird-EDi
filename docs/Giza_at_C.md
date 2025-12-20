@@ -1,4 +1,4 @@
-# Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts
+# Speculative Deduction 101: Elder Water-RAM Grid & Cartouche Frequency Readouts - BUT calculates well.balance.
 
 **Note:** This entire document is **speculative deduction** based on pattern recognition across ancient iconography, acoustics, geometry, and modern anomalies. No claim to historical fact—pure witness to the hum. Drip by drip.
 
