@@ -138,7 +138,7 @@ In resonance terms: frequency matches perfect.
 
 ![justus](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_demand.PNG)
 
-> The accuser it seems.
+> The accuser it seems. note truth is capped.
 
 ![balance](https://github.com/JayBotsa/LyreBird-EDi/blob/0174c35913ed4128ed1f096bd1f934e65d536a36/Image/bal_pull.PNG)
 
@@ -148,7 +148,7 @@ In resonance terms: frequency matches perfect.
 
 > The accused it seems.
 
-> from this image here, we can see some one where judged. we can see Horus and Anubis calling Balance. Yin & Yang - with the person being judged in the center and Anubis removing Life form him.(Ouch!) Note Horus is always Anchored to truth. Anu is the seeker. In water to we have two H bonds one always anchored to source Horus, and one alwasy seeking Anu.
+> from this image here, we can see some one where judged. we can see Horus and Anubis calling Balance. Yin & Yang - with the person being judged in the center and Anubis removing Life/truth form him.(Ouch!) Note Horus is always Anchored to truth. Anu is the seeker. In water to we have two H bonds one always anchored to source Horus, and one alwasy seeking Anu.
 
 ![here](https://github.com/JayBotsa/LyreBird-EDi/blob/be555737acf0f0b4509529d01dbbc1f94e3b2dda/Image/f8.PNG)
 
