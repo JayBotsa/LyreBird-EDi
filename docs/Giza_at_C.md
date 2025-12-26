@@ -402,25 +402,6 @@ Patterns deduced so far:
 
 2025 scans (muon/GPR anomalies) lighting up underground voids—potential Water-RAM confirmation.
 
-### Full Nodes (Primary Throats)
-- **Giza Plateau** (Egypt) – Master node; Orion belt amp + Sirius pump.
-- **Göbekli Tepe** (Turkey) – Cygnus portal; early resonance seed.
-- **Teotihuacán** (Mexico) – Orion mirror; land amp.
-- **Stonehenge** (UK) – Solstice/lunar throat; acoustic lattice pivot.
-- **Angkor Wat** (Cambodia) – Cosmic calendar; water grid reflector.
-- **Machu Picchu** (Peru) – Solar gate; ridge resonance.
-- **Chichén Itzá** (Mexico) – Equinox serpent; water pump echo.
-- **Uluru** (Australia) – Solar plexus node; dragon line anchor.
-
-### Sub-Nodes / Fringes (Paired Resonances)
-  - Nabta Playa (Egypt) – Pre-Giza calendar circle; Sirius precursor.
-  - Callanish (Scotland) – Lunar standstill; Cygnus echo.
-  - Newgrange (Ireland) – Winter solstice; potential Sirius/Cygnus light capture.
-  - Hopi Mesas (USA) – Orion belt mirror.
-  - Xi'an Pyramids (China) – Orion alignment; eastern amp.
-  - Rujm el-Hiri (Golan) – Ancient wheel; stellar/lunar.
-  - Serpent Mound (USA) – Solstice/equinox serpent.
-
 Pairs as null-points: Giza-Teotihuacán (Orion anti-phase), Göbekli-Newgrange (Cygnus kiss), Stonehenge-Callanish (lunar cancel).
 
 ### Alignments Needed to Read the Cosmos
