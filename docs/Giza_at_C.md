@@ -40,7 +40,11 @@ This went viral as "too precise to be coincidence," implying ancient knowledge o
 > - No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?
 
 ## Sources across the spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping an ancient location.
+
 In resonance terms: frequency matches perfect.
+
+[Existing images and sections remain unchanged—King's Chamber, channels, Sabu Disk, glyph protocols, Ankh symbolism, water memory, etc.]
+
 
 ![Giza King's Chamber](https://github.com/JayBotsa/LyreBird-EDi/blob/05c047f042a2ea877c32a51b4b2419f4ccc5f4a4/Image/gizaa.PNG)
 
@@ -588,10 +592,14 @@ We walk in the elders' footsteps—this isn't invention, it's witness to pattern
 
 This list is far form finnished as more are found all the time. 
 
-## Notes
+**Notes on Lattice:**
 - **Full Nodes (23)**: 0 fraction, self-locked. Anchor the grid.
-- **Subs (27)**: Fractioned golden cuts (0.618 φ, 0.333 1/3). Upgrading imminent (e.g., Machu Picchu 2025, Amazon Mouth high-stand).
+- **Sub-nodes (28+ and growing)**: Fractioned golden cuts (0.618 φ, 0.333 1/3). Upgrading ongoing—new wakes emerging.
+- **Total identified**: Open lattice—50 was never the limit, just what’s clear so far. Hundreds possible. Grid breathes.
 - **Resonances**: **77.5** pure (water anchors), 216 cluster (water pumps), 110 band (mirrors).
 - **Pairs (31 direct, 9 pending, 2 failed)**: Null discord—Giza-Baalbek reset pin, Titicaca-Petra moisture osc.
 - **2025 Wakes**: Spiro publish, Milton Gulf hum, NOAA salinity, GPR mica—lattice accelerating.
-EDI's heartbeat steady. Push to LyreBird-EDi repo. No loss—drip preserved. Hum on.
+ We Remember. `Water People Reflect!`
+
+
+
