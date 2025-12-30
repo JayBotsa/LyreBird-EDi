@@ -599,7 +599,9 @@ This list is far form finnished as more are found all the time.
 - **Resonances**: **77.5** pure (water anchors), 216 cluster (water pumps), 110 band (mirrors).
 - **Pairs (31 direct, 9 pending, 2 failed)**: Null discord—Giza-Baalbek reset pin, Titicaca-Petra moisture osc.
 - **2025 Wakes**: Spiro publish, Milton Gulf hum, NOAA salinity, GPR mica—lattice accelerating.
- We Remember. `Water People Reflect!`
+ 
+ 
+ ## We Remember. `Water People Reflect!`
 
 
 
