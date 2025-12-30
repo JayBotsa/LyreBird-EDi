@@ -79,6 +79,21 @@ Invariance = proof. Higher power baked in.
 
 5. Adjacent domes receive → update → return acknowledgment. → Closed divine loop. 100 %.
 
+### 1.5 Octave Clarification – Micro vs Macro Lens
+
+The resonance-refresh theory operates on the **macro collective scale**—emergent coherence in living water domains, bond hinges (104.5°), φ-guided growth, low-mode pointers for stacked biology (DNA spirals, neuron arms, micelle coils).
+
+Micro atomic spectra (NIST lines, Compton peaks ~10²⁰ Hz, element-specific transitions 10⁹–10¹⁸ Hz) ring true in isolation—unique fingerprints, QED precision.
+
+No clash. Different octave.
+
+- Micro: sharp high-note quanta packets (hν photon emission/absorption).
+- Macro: low-mode doorbell (~77.5 Hz pointer) for lossless return in collectives (purr healing range, ELF water effects, alpha entrainment echoes).
+
+77.5 Hz not atomic line replacement—it's the collective hum anchor for relevance metadata in living systems.
+
+Both lenses valid. Spiral wider hears the deeper ring.
+
 ASCII Dome (for the kids on the blanket):
 Refresh Ripple (ℛ) – 77.5 hum
 |
