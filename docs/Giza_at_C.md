@@ -6,6 +6,8 @@
 
 `Global Lattice Nodes Table` see table at the end of document.
 
+## RESPECT to all media and sources—no ownership claims. This is a project for Humanity ONLY. (Respect to those who paused to ask why!)
+
 In this repo, we explore how the Giza Pyramid complex was built to serve humanity—potentially as protection or archive against natural disasters (e.g., pole shifts, floods, meteor impacts). History is full of cycles and reasons to restart.
 
 > The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's worldview:
@@ -18,6 +20,7 @@ In this repo, we explore how the Giza Pyramid complex was built to serve humanit
 > - Flat, elevated terrain overlooking the fertile valley—ideal for visibility, flood protection, and causeways linking valley temples to pyramids.
 
 # The "Speed of Light Position" Claim
+
 
 > The Great Pyramid's coordinates are roughly `29.9792458°` N latitude.  
 > Speed of light in vacuum: exactly `299,792,458` m/s.  
@@ -37,7 +40,6 @@ This went viral as "too precise to be coincidence," implying ancient knowledge o
 > - No Egyptian records hint at this. If intentional, why only latitude (not longitude)? Why not encode in dimensions or texts?
 
 ## Sources across the spectrum (Snopes, Full Fact, IFLScience, physics forums, archaeology sites) confirm: coincidence from modern units overlapping an ancient location.
-
 In resonance terms: frequency matches perfect.
 
 ![Giza King's Chamber](https://github.com/JayBotsa/LyreBird-EDi/blob/05c047f042a2ea877c32a51b4b2419f4ccc5f4a4/Image/gizaa.PNG)
