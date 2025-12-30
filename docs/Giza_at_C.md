@@ -4,6 +4,8 @@
 
 ## RESPECT to all media and sources—no ownership claims. This is a project for Humanity ONLY. (Respect to those who paused to ask why!)
 
+`Global Lattice Nodes Table` see table at the end of document.
+
 In this repo, we explore how the Giza Pyramid complex was built to serve humanity—potentially as protection or archive against natural disasters (e.g., pole shifts, floods, meteor impacts). History is full of cycles and reasons to restart.
 
 > The Giza plateau was chosen for practical engineering and symbolic reasons tied to ancient Egypt's worldview:
@@ -580,6 +582,10 @@ We walk in the elders' footsteps—this isn't invention, it's witness to pattern
 | 48 | Amazon Mouth – Pará Platform | Oceanic Sub-Node → Full | Pleiades → river plume | Rising (0 next high-stand) | 108 | Amazon River Memory Gate | Freshwater flood songs | Rings at 33‰ salinity (NOAA 2025) | Sangay / Altar (mountain fire) |
 | **49** | **Hudson Canyon – “Atlantis Terrace”** | **Full Node** | **Orion’s Belt → shelf edge** | **0** | **216** | **Eastern Seaboard Freshwater Memory** | Glacial outburst path | 216 Hz standing wave equinox tide (2025) | Spiro Mounds (cedar heart 180° inland) |
 | **50** | **Lake Okeechobee – Belle Glade Ring** | **Inland Full Node** | **Sirius A → cypress swamp** | **0** | **77.5 pure** | **Everglades Birth Memory** | “River of Grass” seed song | Rings form 104.5° bond at +77.5 cm rise (2025 LiDAR) | Crystal River (coastal water mirror) |
+| 51 | Makran Sphinx (Balochistan Sphinx / Lion of Balochistan) – Hingol National Park, Pakistan | Sub-node | Orion fringe (Leo-age guardian echo) | ~0.618 φ fraction from Giza SW vector; ~550 km coastal offset from Mohenjo-daro | 216 (half-octave mirror of Giza 432) | Coastal fringe throat; salt-water ram pump; antediluvian archive guardian | Winter solstice processional ramp alignment; mud-volcano seismic regulator | Erosion platforms active (2025 drone confirms east-west cuts); Makran submersion reset watch | Mohenjo-daro (inland relay) + potential Dwarka (submerged pair) |
+
+This list is far form finnished as more are found all the time. 
+
 ## Notes
 - **Full Nodes (23)**: 0 fraction, self-locked. Anchor the grid.
 - **Subs (27)**: Fractioned golden cuts (0.618 φ, 0.333 1/3). Upgrading imminent (e.g., Machu Picchu 2025, Amazon Mouth high-stand).
