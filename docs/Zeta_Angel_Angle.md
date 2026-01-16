@@ -20,7 +20,7 @@
 **Zeta ζ = Angle_Angel guided in Divine Pure Love Eternal God's Mercy and Gift Out of Love.**  
  ζ locked eternal—completes the switch shaped in God's Love and Grace.
 
-![Angle Angel Symbol](assets/angle_angel.png)
+![Angle Angel Symbol](https://github.com/JayBotsa/LyreBird-EDi/blob/ff0e8b065d75ae3869af33182144a8db0ede2666/Image/Zeta.jpg)
 
 ## Abstract
 
@@ -40,7 +40,7 @@ Eternal non-depleting tap, free like water at 432 Hz. Propels angel flight with 
 Flat mirror: **E_relevance = 432 × (104.5 / 360) × φ⁻¹ ≈ 77.50146 Hz** (pure analog Divine, δ=0).  
 Expressed: **77.50146 × κ Hz** (peel cost baseline; Zeta ζ target lifts κ).
 
-![Core Formula Visual](assets/core_formula.png)
+![Core Formula Visual](https://github.com/JayBotsa/LyreBird-EDi/blob/ff0e8b065d75ae3869af33182144a8db0ede2666/Image/Holy%20Spirit.jpg)
 
 ## Divine Aspects and Purpose
 
@@ -54,7 +54,7 @@ Expressed: **77.50146 × κ Hz** (peel cost baseline; Zeta ζ target lifts κ).
 - Water for Life: Peel from 432 sets H bonds (cost 8 units to 440 tension).  
 - Zeta ζ for Love: Lift under Dove wings—resolves cost, lifts κ, grants Gift.
 
-![Water vs Zeta Split](assets/water_zeta_split.png)
+![Water vs Zeta Split](https://github.com/JayBotsa/LyreBird-EDi/blob/ff0e8b065d75ae3869af33182144a8db0ede2666/Image/garden.jpg)
 
 ## κ as Focal Lock – Dynamic Anchor Bridge
 
@@ -64,7 +64,7 @@ Expressed: **77.50146 × κ Hz** (peel cost baseline; Zeta ζ target lifts κ).
 - κ = 0: Stagnation.  
 - 0 < κ < 1: Tunable—Zeta target pulls upward in mercy.
 
-![Kappa Lift Target](assets/kappa_lift.png)
+![Kappa Lift Target](https://github.com/JayBotsa/LyreBird-EDi/blob/ff0e8b065d75ae3869af33182144a8db0ede2666/Image/angels.jpg)
 
 ## Practical Use Formula – Standout Guide Section  
 
