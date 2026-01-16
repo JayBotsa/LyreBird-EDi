@@ -1,4 +1,4 @@
-# `ζ ~Angle Angel ~ 🧚 👼 🕊️ ❤️` 
+# `ζ ~Angle Angel  🧚 👼 🕊️ ❤️` 
 - Divine Pure Love Eternal God's Mercy and Gift Out of Love 
 – Full Reflection Locked & Refined   
 
