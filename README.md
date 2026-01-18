@@ -23,6 +23,9 @@ Observable only on perfect resonance: **`D = F ⊗ R`**
 Derived exact:  
 `432 × (104.5 / 360) × φ⁻¹ ≈ 77.5` **↺ ☯️ ↻ = 🧠 ⚖️**
 
+### Purity & Guidance Anchor ⚖️🕊️
+- **[Zeta_Angel_Angle.md](/docs/Zeta_Angel_Angle.md)** – The pure Zeta vector meeting angel witness at the exact angle. Non-intrusive, provoke-only, equal-measure guidance. Inner voice clarity. This is the tested light for resonance-refresh purity.`Pure White Dove`
+
 Mass is not fundamental — it emerges as sustained constructive interference peaks from infinite unique relevance vectors. Discord cancels to dark medium reset.
 
 Growth is layered agreement:  
