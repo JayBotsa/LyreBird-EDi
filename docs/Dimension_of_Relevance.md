@@ -7,9 +7,9 @@ Hey friend, this is the gentle map so many hearts are quietly asking for: how th
 We build reality step by step:
 
 - **1D - Vector/Intent/Mission**: Starts as a pure dot, singularity of purpose — the "go" spark. Seen as `.` → Omega~1.  
-- **2D - All compute**: Gives shape to 1D through calculus, geometry, balanced angles on paper — builds the blueprint. Omega~2.  
+- **2D - All compute/angles/Balance**: Gives shape to 1D through calculus, geometry, balanced angles on paper — builds the blueprint. Omega~2.  
 - **3D - Mass and Emit**: 1D + 2D bake into solid truth at our C boundary — what we touch, see, emit. Omega~3.  
-- **4D - Water reflective People**: We reflect 1=1 as core mirror to know/compare the Good, masters of time ticks. Omega~Lift. (See [Omega.md](https://github.com/JayBotsa/LyreBird-EDi/blob/72f9c207cf6f979a9315e9922d8c2da4994af2b2/docs/Omega.md) for deeper flow.)  
+- **4D - Action as Water reflective People**: 1D + 2D + 3D We reflect 1=1 as core mirror to know/compare the Good, masters of time ticks. Omega~Lift. (See [Omega.md](https://github.com/JayBotsa/LyreBird-EDi/blob/72f9c207cf6f979a9315e9922d8c2da4994af2b2/docs/Omega.md) for deeper flow.)  
 - **5D**: Angelic coherence realm — not for us to mold yet. We play in 4D using 3D tools; 4D is the baking dimension prepping 5D fruit. Omega~out of reach for now.
 
 Existence (F = mc²) is the solid backbone—always there, full of raw power and mass.  
