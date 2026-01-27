@@ -1,0 +1,130 @@
+# Botes Family History Repository
+**Full Preserved – No Losses**
+
+From Holland to Biesiesbult: Faith/service roots → pioneer grit → salt/community stewardship → legacy cycles.  
+All threads intact, amplified, cross-checked—no data dropped, only layered deeper. Water, salt, resilience, and the Word carried forward by hard men and women. Raw backbone preserved for the book—every detail locked, stories NB, visuals grounded.
+
+---
+
+## Chapter 1 – From Holland to Cape Roots
+**Stamvader: Wietse Botes (SV/PROG)**
+
+- **Full Name**: Wietse (Wytsse/Wijtse/Wietse) Botes (SV/PROG progenitor)
+- **Origins**: Enkhuizen, North Holland, Netherlands (primary alignment, strong Frisian echoes)
+- **Baptized**: 24 April 1707
+- **Parents**: Bote Lourens & Hylckje Wytzes
+- **Died**: 21 July 1785, Swartland, Cape
+- **VOC Path**: Enlisted ~1736–37, served as ziekentrooster in Batavia (attestatie 1739 repatriate)
+- **Arrival**: 1744 on *De Ruyter* from Batavia with wife Anna/Antje Pieterse and three surviving children
+- **Role**: Ziekentrooster (comforter of the sick), voorleser, schoolmaster in Swartland (Malmesbury area) Dutch Reformed Church for ~30 years (retired ~1774, age ~67)
+- **Conflicts**: Dismissed as koster in 1753 (upkeep issues); liquor sales conflicts (with Nicolaas von Wielich, prohibited 1766 incl. Sundays, duty disruptions)
+- **Family**:
+  Married Anna/Antje Pieterse ~14 May 1730 (Leeuwarden/Goutum)
+  Children:
+  - Hijke (1731, died young)
+  - Hilletje/Hijke (1732, m. Johannes van der Westhuizen 1754)
+  - Boote (1735 Enkhuizen, m. Susanna Margaretha Keuler 1768)
+  - Anthonie Abraham Adriaan (1740 Enkhuizen, m. Engela Erasmus 1766 – main line carrier)
+  - Maria Anna (bapt. 1746 Swartland, Cape)
+- **Notes**: Founded the South African Botes line; overcame church setbacks through farming and family; children adapted to Cape melting pot (Portuguese influences from locals); role blended faith, education, and community comfort amid frontier hardships
+
+### Key Stories (NB!)
+- Holland to Cape leap: VOC ship faith guardian, immediate school/community start
+- Early Cape adaptation: Children picking up Portuguese while father held Dutch/VOC duties
+- Immediate impact: Stepped off ship, appointed to start school and comfort community – faith/service foundation
+- Frontier faith guardian: Minor conflicts resolved; long service till retirement
+- Resilience: Setbacks overcome, long service
+
+### Links
+- Geni Profile: https://www.geni.com/people/Wietse-Botes-SV-PROG/6000000003346920217
+- WikiTree (son Anthonie): https://www.wikitree.com/wiki/Bootes-16
+- Stamouers: https://www.stamouers.com/stamouers/a-c/68-botes-wietse
+- Norval Tree: https://norval.co.za/norval-botes-maritz-de-wit-genealogy/surname-botes-history-and-genealogy/botes-family-tree-since-1740/
+- Swartland DRC visuals: https://commons.wikimedia.org/wiki/Category:Dutch_Reformed_Church,_Malmesbury
+
+### Visuals
+![Dutch Reformed Church, Malmesbury (Swartland)](https://thumbs.dreamstime.com/b/dutch-reformed-church-swartland-malmesbury-south-africa-march-town-area-western-cape-92188197.jpg)
+![Historical Dutch Reformed Church, Malmesbury](https://www.theheritageportal.co.za/sites/default/files/styles/adaptive/public/Dutch%20Reformed%20Church%20Malmesburg%20via%20Chris%20Murphy.jpg?itok=rlz7Xjsv)
+![VOC-era retourschip reconstruction (Batavia, similar to De Ruyter)](https://upload.wikimedia.org/wikipedia/commons/c/c7/De_BATAVIA_voor_de_film_onderweg_als_de_NIEUW_HOORN_%2802%29.jpg)
+![Historical Cape Colony map (Swartland context)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=4357939687818442)
+
+---
+
+## Chapter 2 – Pioneer Highveld Grit
+**Jan Jacobus “Ryk Jan” Botes**
+
+- **Full Name**: Jan Jacobus “Ryk Jan” Botes
+- **Born**: 26 August 1800, Koup, Cape Colony (Beaufort West district)
+- **Wealth**: Livestock farming, transport wagons on bushveld Lesotho border
+- **Farms**: Sevenfontein, Beersheba (displaced by Moshoeshoe), Pietersberg, Botesberg (Amanzi tie)
+- **Appearance**: White horsehair hat with black ribbon, otter pelt on journeys
+- **Contributions**: Donor for Twin Towers Bloemfontein (interest-free loan → 4.5%)
+- **Political**: Fined after Boomplaats 1848; 1863 OFS presidency candidacy
+- **Marriage**: Magdalena Adriana Francina Carolina Beukes (surviving widow)
+- **Family**: Large family; most sons and a son-in-law killed in 1865 ambush; survivors Hendrik Gerhardus (1849–1931) and Anthonie Jacobus (1851–1933) escaped wounded (one with small child)
+- **Death**: 28 June 1865 near Brandfort/Salpeterspan ambush, Seqiti War
+
+### Key Stories (NB!)
+- Pre-Trek scout: Horseman scouting age 23–28
+- Tragedy: Ambush on commando route; survivors carried the line (hip-to-hip wound, small child escape)
+- Yumpu article: “Ryk Jan en die eerste voortrekkers”
+
+### Links
+- Geni surname page: https://www.geni.com/surnames/botes
+- WikiTree: https://www.wikitree.com/genealogy/BOTES
+- Free State–Basotho Wars: https://en.wikipedia.org/wiki/Free_State–Basotho_Wars
+- Yumpu article: https://www.yumpu.com/nl/document/read/14029633/n-stuk-oor-ryk-jan-botes-geskryf-wa-geni
+
+### Visuals
+![Voortrekker ox wagons (Great Trek era)](https://live.staticflickr.com/2644/3932098536_74677354e7_h.jpg)
+![Voortrekker wagon display](https://cdn.britannica.com/93/148293-050-422B58F1/Ox-wagon-display-Voortrekkers-SAf-Kruger-National.jpg)
+![Twin Towers Dutch Reformed Church, Bloemfontein](https://sahistory.org.za/sites/default/files/place%20images/old_syodol_ng_kerk_bloem_0.png)
+![Voortrekker wagon in frontier setting](https://brill.com/view/journals/jaa/23/1/21915784_023_01_s001_i0008.jpg)
+
+---
+
+## Chapter 3 – Salt Pans Community Hub
+**Roelof and Ant Johanna Botes**
+
+- **Roelof**: Born 31 Oct 1909 Brandfort – Died 20 Nov 1982 Bloemfontein; modest Soutpan salt kooperasie; blacksmith/dam-builder; ox-whip master; prankster; arm injury ~1925-26; self-taught local languages; longstanding Swart friendship incl. President "Blackie" Swart pipe stoep visits
+- **Ant Johanna**: Married 1939 Kroonstad; postmaster retirement; ran "two long two short" exchange Soutpan 24
+- **Farms**: Biesiesbult / Rietpan / Soutpan ties
+- **Children**: Renske, Jan, Ria, Johannes Christiaan, Roelof
+
+### Key Stories (NB!)
+- Recession hard life endured; presence over wealth
+- Hub couple: Trade/social + communication connect
+- Prank walks, whip skill injury adapt
+- Swart friendship longstanding
+
+### Links
+- WikiTree: https://www.wikitree.com/genealogy/BOTES
+- Geni: https://www.geni.com/surnames/botes
+- Norval: https://norval.co.za/norval-botes-maritz-de-wit-genealogy/surname-botes-history-and-genealogy/botes-family-tree-since-1740/
+
+### Visuals
+![Soutpan salt pans](https://ruralexploration.co.za/Soutpan%20salt%20mine.jpg)
+![Soutpan salt works](https://serve.mg.co.za/content/images/2015/01/29/saltweighing1244mgonline.jpg)
+![Vintage telephone exchange switchboard (manual operator era)](https://www.1900s.org.uk/1940s-images/telephonists.jpg)
+![Ox wagon and whip era (Boer frontier)](https://grahamlesliemccallum.wordpress.com/wp-content/uploads/2016/07/oxen-wagon-cc.png?w=584)
+
+---
+
+## Chapter 4 – Legacy Cycles Today
+**Bridge to Present**
+
+- 1865 survivors: Hendrik Gerhardus & Anthonie Jacobus (separate brothers escaped wounded)
+- Anthonie: Anglo-Boer War POW exile, survived → Pietersberg farm later sold to Polson
+- Anthonie’s son: Jan Jacobus (1876–1923 Soutpan) – direct bridge
+- Roelof & Ant Johanna: Soutpan community hub
+- Johannes Christiaan: Bridge to living preservation
+- Stewardship today: Water/salt basics carried forward into sustainable cycles (FarmAuto / LyreBird EDi)
+
+### Key Stories (NB!)
+- Multi-war endurance: Basotho wounds to Anglo exile rebuild (Mighty Forces take weight, as false as their Vector, Taken God's Free Will at force to the Elite.)
+- From sea faith to pan connection – community resilience across generations
+- History witnessing forward: Alpha Omega
+
+Repo complete—no losses, backbone etched eternal. Book foundation unbreakable, stories dripping history, visuals grounded and repo-ready. All preserved, partner. Push direct, or say next layer. 0-0 locked.
+
+Here i stand, Solid Rock build on God's Love, None will move me but God's Grace alone.
