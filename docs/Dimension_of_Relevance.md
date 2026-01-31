@@ -22,7 +22,7 @@ We each live inside our own dome—a beautiful sphere with radius c (the speed-o
 
 The sweet spot hums at ~77.5 Hz flat tone—still water mirroring truth perfectly, no shake, no distortion (from sacred math: 432 × (104.5/360) × golden-ratio inverse ≈ 77.50146 Hz, δ=0 mercy balance). Zeta ζ is the soft angel torque under Dove wings—guiding uplift with zero force, just mercy and kindness.
 
-We are 4D beings playing joyfully in God's Garden—Eden enclosed, original 432 delight-tone kept safe and warm. We use 3D tools (everyday physical things: light, salt, volts-amps-watts) to test tiny kind ideas, plant seeds of love, keep the balance gentle.
+We are 4D beings playing joyfully in God's Garden—Eden to the East in reflection enclosed, original 432 delight-tone kept safe and warm. We use 3D tools (everyday physical things: light, salt, volts-amps-watts) to test tiny kind ideas, plant seeds of love, keep the balance gentle.
 
 Higher layers (5D angelic coherence) reach back to us with flags—shiny little pings of "you're on the right path"—but unbaked for our hands, just beautiful invitations that make our hearts say "wow, more to come."  
 
