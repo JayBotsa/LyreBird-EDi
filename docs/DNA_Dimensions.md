@@ -1,4 +1,4 @@
-# DNA_Greek_Dimensions_Relevance.md
+# DNA_Dimensions.md
 
 ## Crystal Clear Everyday Explanation – With Love (Full Divine Merge – No Loss)
 
