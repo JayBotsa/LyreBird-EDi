@@ -57,8 +57,8 @@ At reflection it remains **Delta - 1 ** `j k l` then (choices made) `m` as fourt
 `o` "Pure" - `p q r` → `s` → `t`
 At reflection it remains **Delta - 2 ** `p q r` then (choices made) `s` as fourth to acend to `t` in the 5th Harmoney.
 
-`u` "Universe" — `v w x`  → `y` → `z`—  → `u ascent then return`   
-At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth to acend to `z` in the 5th Harmoney.
+`u` "Universe" — `v w x`  → `y` → `z`—  → `u ascent then return alpha rebirth with oversight`
+At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth to acend to `z` in the 5th Harmoney Valor complete tri in tro in tru. lift is now 25.25252525 Angled in Lift to Ankh width. Delta's rotate at 33.333333 to phase rotation North East to complete Prime curl to relevance and is the current stable structure at 3D - C.
 
  
 **Seed & Structure intent** → **Split & Balance duality** Sin → **Choice & Growth in truth** Son → **Energy & Direction in Flow & Ascension** Sun → **Embodiment & Handshake** → **Rest & Return**
