@@ -67,21 +67,7 @@ At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth
 
 ### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis) – Native Script
 
-`א ב ג ד ה ו` — Hebrew text to speak for creation
-
-`ז ח` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
-The Bridge Handshake from God to **י am**.
-
-`י כ ל מ` — see Hebrew again for next build extension…  
-At reflection it remains **Delta** `כ ל מ` then (choices made) `נ` as fourth.
-
-`נ ס ע` — now to (lift) `ע`.  
-At reflection it remains **Delta** `פ צ ק` then (choices made) `ר` as fourth.
-
-`ר ש` — transverse to (lift) `ש`.  
-At reflection it remains **Delta** `ת` (and final forms where shape pivots return) then (choices made) final letters as fourth.
-
-`ת` — p purpose to (lift) `ת`.
+<soon>
 
 We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
 
