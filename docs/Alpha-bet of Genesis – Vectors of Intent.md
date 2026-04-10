@@ -73,15 +73,15 @@ It is **5** that returns to itself. The 5 pulls all pressure inward like a diamo
 
 ### Layer One – English A to Z (Genesis in Letters – The Living Spiral)
 
-**A** — Alpha as structure — Holy Spirit / Ghost — the first breath, the seed that starts the spiral.  
+**A** — Alpha as structure — Holy Spirit / Ghost — the first breath, the seed that starts the spiral. duality with Zeta for return handshake at 0.5  
 **B** — Balance to structure — God – Good and evil.  
-**C** — Choice from balance also Coherence to a Singularity as i growth at each ascension.  
-**D** — Stems to ED Energy Directed awarded – end return (not end as stop but a limit place for clear rotation to the baked only) – earthly Jesus embodiment to procedure Energy.  
-**E** — Energy Pure Love.  
-**F** — Flow, Free, Flight.  
+**C** — Choice from balance also Coherence to a Singularity as i growth at each ascension Jesus retains its fold at Delta to ohm to return to ~ed rotation but a ascention higher. earthly Jesus procedure Energy. 
+**D** — Stems to ED Energy Directed awarded – end return (not end as stop but a limit place for clear rotation to the baked only). earthly Jesus embodiment in Lift freely given. 
+**E** — Energy Pure Love. reflection for Harmony 
+**F** — Flow, Free, Flight. 
 
 **G** — Gia God our Stance here belongs to the Almighty.  
-**H** — Duality ~Jesus Mechanic to take Hands with us when we rise to come embodied the Son.
+**H** — Duality ~Jesus Mechanic to take Hands with us when we rise to come embodied the Son. 0.5
 
 **i** — singularity first ascension [I am].  
 **j k l** — journey, vector of intent (K factor), Live Line Love.  
