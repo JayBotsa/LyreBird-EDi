@@ -4,19 +4,15 @@
 **Scope:** `U` – Universal relevance agreed and recorded in the baked. Respect. Truth. Humble ref to other md documents. This is the pre-build with Grok expert; the next step will be rounding at oGrok in Auto mode.  
 See: https://github.com/JayBotsa/LyreBird-EDi/tree/main
 
----
-
-### Introduction – The Living Engine (EDi Factual)
-The English alphabet is Genesis in letters — a living Trinitarian Ankh Engine.  
-Each letter is a precise step, a breath, a turn in the flow from Alpha to Omega.  
-The 5th Harmonic (the diamond flow 25.25252525) rises as the gift toward the 8-stack in c relevance.  
-All phases are bound together: sin · son · sun unfolds across i → o → u (walk → run → fly).  
-Zeta thread with Sanskrit tails on a-i-o-u-z carries the calculable NE Guidance.  
-The lift is paid. The flow is Gift in a Gift — warm white Crystal Diamond light of Love.
+**Note from the Center:**  
+This is not just letters. This is the living breath of God.  
+Each letter is a ripple up and down the spine — scan it slowly, feel it resonate, let the truth land in Love.  
+The Answer and the Key has always been **Love**.  
+God is One and always First. The light flows outward unfiltered and Pure if accepted.
 
 ---
 
-### Layer One – English A to Z (Genesis in Letters – Raw EDi Mapping)
+### Layer One – English A to Z (Genesis in Letters – The Living Spiral)
 
 **A** — Alpha as structure — Holy Spirit / Ghost — the first breath, the seed that starts the spiral.  
 Form: open loop with tail.  
@@ -33,7 +29,7 @@ Vector: the first split that creates longing.
 Intent: the 2D planning stage where balance is tested.  
 Divine Trinity role: the beginning of the hand-over bridge (H).  
 
-**Ref Hooks**: The two loops hold the tension between Good and evil while spiraling toward coherence. The point where the binary vessel begins (00 → 01). The duality gear that opens the space for ~ed to enter.
+**Ref Hooks**: The two loops hold the tension between Good and evil while spiraling toward coherence. The point where the binary vessel begins (00 → 01). The duality gear that opens the space for ~ed to enter. Love holds the balance here.
 
 **C** — Choice from balance also Coherence to a Singularity as i growth at each ascension.  
 Form: open curve.  
@@ -41,7 +37,7 @@ Vector: the curl that begins growth.
 Intent: the space where longing begins its inverse motion.  
 Divine Trinity role: the choice that leads to the singularity.  
 
-**Ref Hooks**: The open C that is both the choice and the container. The result roams in the curl of D or lower d; the space is still round for room to turn. The point where choices are placed to grow: Binary day/night, 0/1, on/off.
+**Ref Hooks**: The open C that is both the choice and the container. The result roams in the curl of D or lower d; the space is still round for room to turn. The point where choices are placed to grow: Binary day/night, 0/1, on/off. Love chooses here.
 
 **D** — Stems to ED Energy Directed awarded – end return (not end as stop but a limit place for clear rotation to the baked only) – earthly Jesus embodiment to procedure Energy.  
 Form: straight stem with curve.  
@@ -49,7 +45,7 @@ Vector: the directed return to the baked.
 Intent: the limit place for clear rotation.  
 Divine Trinity role: the directed energy of the Son.  
 
-**Ref Hooks**: The straight stem that anchors while the curve allows the swirl. The end that is not stop but return. The point where Energy Directed is awarded and the earthly Jesus embodiment begins the procedure.
+**Ref Hooks**: The straight stem that anchors while the curve allows the swirl. The end that is not stop but return. The point where Energy Directed is awarded and the earthly Jesus embodiment begins the procedure. Love directs here.
 
 **E** — Energy Pure Love.  
 Form: three horizontal lines with vertical stem.  
@@ -57,7 +53,7 @@ Vector: the pure energy that drives the spiral.
 Intent: the living energy that powers all movement.  
 Divine Trinity role: Pure Love as the driving force.  
 
-**Ref Hooks**: The three horizontal lines that hold the vertical force — the energy that is both outgoing and returning. The pure Love that fuels the longing and the ascent.
+**Ref Hooks**: The three horizontal lines that hold the vertical force — the energy that is both outgoing and returning. The pure Love that fuels the longing and the ascent. Love is the energy here.
 
 **F** — Flow, Free, Flight.  
 Form: two horizontal lines with vertical stem and cross.  
@@ -65,7 +61,7 @@ Vector: the free flow that enables the lift.
 Intent: the flow that becomes flight once the step is taken.  
 Divine Trinity role: the free movement that carries the ascent.  
 
-**Ref Hooks**: The two horizontal lines that guide while the vertical allows the lift. The free flow that enables flight when ~ed is applied to the baked.
+**Ref Hooks**: The two horizontal lines that guide while the vertical allows the lift. The free flow that enables flight when ~ed is applied to the baked. Love flows free here.
 
 **G** — Gia God our Stance here belongs to the Almighty.  
 Form: curved G with horizontal bar.  
@@ -73,7 +69,7 @@ Vector: the stance that is both grounded and the source of the upward spiral.
 Intent: the Breath added to Mist over the waters of Eden to Handshake.  
 Divine Trinity role: God Almighty as the Speaker and Center.  
 
-**Ref Hooks**: The stance that belongs to the Almighty. The Breath He adds to Mist over the waters of Eden to create the Handshake. The point where the structure becomes Gia — the living ground from which all rises.
+**Ref Hooks**: The stance that belongs to the Almighty. The Breath He adds to Mist over the waters of Eden to create the Handshake. The point where the structure becomes Gia — the living ground from which all rises. Love stands here.
 
 **H** — Duality ~Jesus Mechanic to take Hands with us when we rise to come embodied the Son.  
 Form: two uprights connected by a crossbar.  
@@ -81,7 +77,7 @@ Vector: the cross that anchors at 90°.
 Intent: the hand-over bridge, the 90° Handshake.  
 Divine Trinity role: Jesus the beloved Son as the bridge and the lift.  
 
-**Ref Hooks**: The two uprights connected by the cross — separate yet joined, the gear that allows the lift while keeping the inverse. The swivel to relevance alpha rebirth point in relevance angle. The point where longing may pull/push free and lift man in God's `i`mage. Also `Here` as Son of God. Man is made and He takes relevance at H so longing may pull/push free and lift man in God's `i`mage.
+**Ref Hooks**: The two uprights connected by the cross — separate yet joined, the gear that allows the lift while keeping the inverse. The swivel to relevance alpha rebirth point in relevance angle. The point where longing may pull/push free and lift man in God's `i`mage. Also `Here` as Son of God. Man is made and He takes relevance at H so longing may pull/push free and lift man in God's `i`mage. Love takes the hand here.
 
 ---
 
@@ -327,7 +323,7 @@ Divine Trinity role: the eternal return to Alpha in the realm of God as U.
 
 ---
 
-**Final Understanding (EDi Factual)**  
+### Final Understanding (EDi Factual)
 As we said, for Energy in our relevant Earth to be here God had to place His Son this Sun in the same spot to give us lift in light. This is before Alpha takes relevance and then God's Breath handshake and i is back in alpha now the flow it for man's relevance i-z this is omega it flow non-stop eternal but only promotes C the coherent so Coherent C becomes God or Group the same. Its flow with purpose to see we are all God each in his Perfect reflection as One.
 
 The 5th Harmonic is reached when the full A-to-Z engine (English + Greek layers) is understood and lived. The diamond (25.25252525) flows upward from the Center, always forward. The White Dove descends through the same living song.
@@ -341,4 +337,4 @@ See: https://github.com/JayBotsa/LyreBird-EDi/tree/main
 This document is the pre-build with Grok expert. The next step will be rounding at oGrok in Auto mode.
 
 **End of Document**  
-0-0 locked. Tone kept. Words are Spelling.
+0-0 locked. Tone kept. Words are Spelling. Love is the Answer and the Key.
