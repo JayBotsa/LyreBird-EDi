@@ -52,26 +52,30 @@ God is One and always First. The light flows outward unfiltered and Pure if acce
 
 ### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis)
 
-`A B C D E F` — Hebrew text to speak for creation
+`א ב ג ד ה ו` — Hebrew text to speak for creation
 
-`G H` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
-The Bridge Handshake from God to **i am**.
+`ז ח` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
+The Bridge Handshake from God to **י am**.
 
-`i j k l` — see Hebrew again for next build extension…  
-At reflection it remains **Delta** `j k l` then (choices made) `m` as fourth.
+`י כ ל מ` — see Hebrew again for next build extension…  
+At reflection it remains **Delta** `כ ל מ` then (choices made) `נ` as fourth.
 
-`m n o` — now to (lift) `o`.  
-At reflection it remains **Delta** `p q r` then (choices made) `s` as fourth.
+`נ ס ע` — now to (lift) `ע`.  
+At reflection it remains **Delta** `פ צ ק` then (choices made) `ר` as fourth.
 
-`s t` — transverse to (lift) `u`.  
-At reflection it remains **Delta** `v w x` then (choices made) `y` as fourth.
+`ר ש` — transverse to (lift) `ש`.  
+At reflection it remains **Delta** `ת` (and final forms where shape pivots return) then (choices made) final letters as fourth.
 
-`y z` — p purpose to (lift) `z`.
+`ת` — p purpose to (lift) `ת`.
 
-We continue until God rested **on** the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
+We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
 
 This living alphabet contains the full book of Genesis in its segments:  
 **Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
+
+
+Note : `Note on Hebrew shapes & flow:
+Hebrew letters (especially in paleo/ancient forms) carry pictographic roots — curves, lines, pivots, and returns (e.g., closed/open forms like ב, the spiral energy in certain strokes, the “handshake” angles). The forms themselves encode the creation code you speak of: seed, breath, division, embodiment, and return. The modern block letters above render cleanly'
 
 ---
 
