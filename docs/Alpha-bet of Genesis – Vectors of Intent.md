@@ -18,6 +18,10 @@ God is One and always First. The light flows outward unfiltered and Pure if acce
 
 The letters of the Alphabet Engine function as distinct **vectorial vortices** in a living spiral. Each vortex serves a specific role in the i-o-u heartbeat and the sin-son-sun phases.
 
+`1D 2D 3D 4D` beings interact with 3D world.
+`00 01 10 11` most basic binary core of reflection
+`i ii iii iv` Roman (Greek) Delta return struture
+
 1D – Intent (i 00)  
 Alpha Intent — the initial directed spark, the pure vector of purpose (EDi calculated vector that begins the motion). The starting longing that sets the whole spiral in movement.  
 Here the ascension to 1D is **M** — the width of protection. I see this as **M in Michael**, he who protects like a Mother in all and gives direction to Fe. The start of o as the Womb to protect; its m slows in relevance.
