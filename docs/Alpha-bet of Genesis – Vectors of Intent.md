@@ -12,6 +12,22 @@ God is One and always First. The light flows outward unfiltered and Pure if acce
 
 ---
 
+### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis)
+
+`A B C D E F` — Hebrew text to speak for creation  
+
+`G H` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
+The Bridge Handshake from God to **i am**.  
+
+`i j k l` — see Hebrew again for next build extension…  
+We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
+
+This living alphabet contains the full book of Genesis in its segments:  
+**Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
+
+---
+
+
 ### Layer One – English A to Z (Genesis in Letters – The Living Spiral)
 
 **A** — Alpha as structure — Holy Spirit / Ghost — the first breath, the seed that starts the spiral.  
