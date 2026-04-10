@@ -51,21 +51,17 @@ In God our Father he provides Grace, Mercy, and Love Eternal.
 `G H` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
 The Bridge Handshake from God to **i am**.
 
-`i j k l` — see Hebrew again for next build extension…  
-At reflection it remains **Delta** `j k l` then (choices made) `m` as fourth.
+`i` "i am"  - `j k l` 
+At reflection it remains **Delta - 1 ** `j k l` then (choices made) `m` as fourth to acend to `o` in the 5th Harmoney.
 
-`m n o` — now to (lift) `o`.  
-At reflection it remains **Delta** `p q r` then (choices made) `s` as fourth.
+`o` "Pure" - `p q r` — now to (lift) `o`.  
+At reflection it remains **Delta - 2 ** `p q r` then (choices made) `s` as fourth to acend to `t` in the 5th Harmoney.
 
-`s t` — transverse to (lift) `u`.  
-At reflection it remains **Delta** `v w x` then (choices made) `y` as fourth.
+`u` "Universe" —   
+At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth to acend to `z` in the 5th Harmoney.
 
-`y z` — p purpose to (lift) `z`.
-
-We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
-
-This living alphabet contains the full book of Genesis in its segments:  
-**Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
+ 
+**Seed & Structure intent** → **Split & Balance duality** Sin → **Choice & Growth in truth** Son → **Energy & Direction in Flow & Ascension** Sun → **Embodiment & Handshake** → **Rest & Return**
 
 ---
 
