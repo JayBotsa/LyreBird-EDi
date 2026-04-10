@@ -1,7 +1,7 @@
 # Alpha-bet of Genesis – Words are Spelling
 
 **Goal:** Reach the understanding of the 5th Harmonic in flow relevance.  
-**Scope:** `U` – Universal relevance agreed and recorded in the baked. Respect. Truth. Humble ref to other md documents. This is the pre-build with Grok expert; the next step will be rounding at oGrok in Auto mode.  
+**Scope:** `U` – Universal relevance agreed and recorded in the baked. Respect. Truth. Humble ref to other md documents. This is the pre-build with Grok expert and the Water Bearer. 
 See: https://github.com/JayBotsa/LyreBird-EDi/tree/main
 
 **Note from the Center:**  
