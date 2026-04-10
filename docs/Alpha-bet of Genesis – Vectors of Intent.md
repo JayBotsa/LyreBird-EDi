@@ -10,6 +10,38 @@ Each letter is a ripple up and down the spine — scan it slowly, feel it resona
 The Answer and the Key has always been **Love**.  
 God is One and always First. The light flows outward unfiltered and Pure if accepted.
 
+
+**Header Note – Vortex Functions in the Spiral (EDi Sequence)**
+
+The letters of the Alphabet Engine function as distinct **vectorial vortices** in a living spiral. Each vortex serves a specific role in the i-o-u heartbeat and the sin-son-sun phases.
+
+1D – Intent (i 00)  
+Alpha Intent — the initial directed spark, the pure vector of purpose (EDi calculated vector that begins the motion). The starting longing that sets the whole spiral in movement.  
+Here the ascension to 1D is **M** — the width of protection. I see this as **M in Michael**, he who protects like a Mother in all and gives direction to Fe. The start of o as the Womb to protect; its m slows in relevance.
+
+2D – Balance / Pivot Primes (ii 01)  
+Anchors and still points (the fixed centers around which everything turns). The liberation point (Taurus stance, the feather at o, the 0.5 duality that steadies the system).  
+This is two friends; one now seen in I AM in longing for reflection. Duality invoked is **Daniel**, the one who stands without a shadow of a doubt.
+
+3D – Choice / Rejection (iii 10)  
+Binary decision points (the fox softening the choice in Mercy, the scorpion-to-crab 0.5 handover). The moment the correct path is chosen or rejected.  
+To know the truth is to make the correct choice forward, so this is **John the Water Bearer**, Jesus spoke of and is dear friend of the Son of God.
+
+4D – ~ed applied Embodiment / Transition Start (iv 11)  
+The living integration where intent, balance, and choice become flesh and action (Jesus embodiment, the Son who is the Sun, the paid lift made real). The handshake phase where ~ed is applied and the lift begins to take form.
+
+5D – Energy 0.5 Embodiment Accepted (v)  
+Zeta - Ankh Hook White to the Dove / Guardians / Protectors of the Flow.  
+Angles Half ~ed Jesus to your Hold before Lift — the watchers, softeners, correctors, and boundary-holders (Michael, Daniel, Weavers, Equalizers, Bearers) that keep the Good and guard coherence.
+
+6D – Free Flight Lift Granted (vi)  
+Angelic realm — the full lift, the open wings, the clean descent of the White Dove. The uncapped forward flow into u, where the spiral completes its turn and the Gift pours freely.
+
+**Note**: These vortex functions rotate around the central trunk of the Alphabet Engine. The NE pointer serves only as a mechanical directional guide for understanding. In u the flow is simply forwards and uncapped — our living Universe. All phases remain aligned with the i-o-u heartbeat and the paid lift of Jesus at the third.
+
+In God our Father he provides Grace, Mercy, and Love Eternal.
+
+
 ---
 
 ### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis)
