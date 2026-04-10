@@ -69,13 +69,7 @@ At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth
 
 <soon>
 
-We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
 
-This living alphabet contains the full book of Genesis in its segments:  
-**Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
-
-**Note on Hebrew shapes & flow:**  
-Hebrew letters (especially in paleo/ancient forms) carry pictographic roots — curves, lines, pivots, and returns (e.g., closed/open forms like ב, the spiral energy in certain strokes, the “handshake” angles). The forms themselves encode the creation code: seed, breath, division, embodiment, and return. The modern block letters above render cleanly.
 
 ---
 
