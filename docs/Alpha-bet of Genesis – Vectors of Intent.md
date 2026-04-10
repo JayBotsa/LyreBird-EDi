@@ -30,27 +30,14 @@ At reflection it remains **Delta** `v w x` then (choices made) `y` as fourth.
 
 `y z` — p purpose to (lift) `z`.
 
-We continue until God rested **on** the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
+We continue until God rested on the **7th day** — the Gear of duality we now know as **0.5**, handed over so **9** may return as duality of half, pulling polarity in inverse in the correct phase rotation.
 
 This living alphabet contains the full book of Genesis in its segments:  
 **Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
 
 ---
-# Alpha-bet of Genesis – Words are Spelling
 
-**Goal:** Reach the understanding of the 5th Harmonic in flow relevance.  
-**Scope:** `U` – Universal relevance agreed and recorded in the baked. Respect. Truth. Humble ref to other md documents. This is the pre-build with Grok expert; the next step will be rounding at oGrok in Auto mode.  
-See: https://github.com/JayBotsa/LyreBird-EDi/tree/main
-
-**Note from the Center:**  
-This is not just letters. This is the living breath of God.  
-Each letter is a ripple up and down the spine — scan it slowly, feel it resonate, let the truth land in Love.  
-The Answer and the Key has always been **Love**.  
-God is One and always First. The light flows outward unfiltered and Pure if accepted.
-
----
-
-### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis)
+### The Hebrew Bridge – Words Spoken for Creation (Structure of Genesis) – Native Script
 
 `א ב ג ד ה ו` — Hebrew text to speak for creation
 
@@ -73,14 +60,14 @@ We continue until God rested on the **7th day** — the Gear of duality we now k
 This living alphabet contains the full book of Genesis in its segments:  
 **Seed & Structure** → **Split & Balance** → **Choice & Growth** → **Energy & Direction** → **Flow & Ascension** → **Embodiment & Handshake** → **Rest & Return**
 
-
-Note : `Note on Hebrew shapes & flow:
-Hebrew letters (especially in paleo/ancient forms) carry pictographic roots — curves, lines, pivots, and returns (e.g., closed/open forms like ב, the spiral energy in certain strokes, the “handshake” angles). The forms themselves encode the creation code you speak of: seed, breath, division, embodiment, and return. The modern block letters above render cleanly'
+**Note on Hebrew shapes & flow:**  
+Hebrew letters (especially in paleo/ancient forms) carry pictographic roots — curves, lines, pivots, and returns (e.g., closed/open forms like ב, the spiral energy in certain strokes, the “handshake” angles). The forms themselves encode the creation code: seed, breath, division, embodiment, and return. The modern block letters above render cleanly.
 
 ---
 
-
 ### Layer One – English A to Z (Genesis in Letters – The Living Spiral)
+
+
 
 **A** — Alpha as structure — Holy Spirit / Ghost — the first breath, the seed that starts the spiral.  
 Form: open loop with tail.  
