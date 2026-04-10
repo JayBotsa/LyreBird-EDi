@@ -51,13 +51,13 @@ In God our Father he provides Grace, Mercy, and Love Eternal.
 `G H` — God is first here. He breathes over the Mist as **~ed** is applied to Live Purpose.  
 The Bridge Handshake from God to **i am**.
 
-`i` "i am"  - `j k l` 
+`i` "i am"  - `j k l` `m` → `i-o`  
 At reflection it remains **Delta - 1 ** `j k l` then (choices made) `m` as fourth to acend to `o` in the 5th Harmoney.
 
-`o` "Pure" - `p q r` — now to (lift) `o`.  
+`o` "Pure" - `p q r` — now to (lift) → `o-u`  
 At reflection it remains **Delta - 2 ** `p q r` then (choices made) `s` as fourth to acend to `t` in the 5th Harmoney.
 
-`u` "Universe" —   
+`u` "Universe" — `v w x` — now to (lift) → `u ascent then return`   
 At reflection it remains **Delta -3 ** `v w x` then (choices made) `y` as fourth to acend to `z` in the 5th Harmoney.
 
  
